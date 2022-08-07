@@ -1,1 +1,13 @@
-# english_practice
+In this repo I publish the information during the study of practice English.
+
+## Продолжающим: Грамматика. Синий Murphy (уровень B1 - B2) - Английский язык средний уровень - все правила, English Grammar in Use. [YouTube-канал Елены Вогнистой](https://www.youtube.com/playlist?list=PLYB0SmefqEsk6b6PRR8mai1oetrWyH7j-).
+
+`English_gramma_in_use_1-10.md` - уроки и практика с 1 по 10
+
+`English_gramma_in_use_11-20.md` - уроки и практика с 11 по 20
+
+`English_gramma_in_use_21-30.md` - уроки и практика с 21 по 30
+
+`English_gramma_in_use_31-40.md` - уроки и практика с 31 по 40
+
+`English_gramma_in_use_41-50.md` - уроки и практика с 41 по 50
