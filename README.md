@@ -11,3 +11,9 @@ In this repo I publish the information during the study of practice English.
 `English_gramma_in_use_31-40.md` - уроки и практика с 31 по 40
 
 `English_gramma_in_use_41-50.md` - уроки и практика с 41 по 50
+
+`English_gramma_in_use_51-60.md` - уроки и практика с 51 по 60
+
+`English_gramma_in_use_61-70.md` - уроки и практика с 61 по 70
+
+`English_gramma_in_use_71-80.md` - уроки и практика с 71 по 80
