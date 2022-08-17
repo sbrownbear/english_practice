@@ -1,266 +1,162 @@
 ## 53. Герундий и инфинитив. Практика
 
-Stop, finish, recommend, consider (рассматривать, обдумывать), admit (признавать), deny (отказываться что-то делать), avoid, risk, imagine, fancy (делать что-то с удовольствием), keep, suggest
-give up (stop), put off (откладывать), go on or carry on, keep on
+__Stop, finish, recommend, consider *(рассматривать, обдумывать)*, admit *(признавать)*, deny *(отказываться что-то делать)*, avoid, risk, imagine, fancy *(делать что-то с удовольствием)*, keep, suggest
+give up (stop), put off *(откладывать)*, go on or carry on, keep on__
 
-Verb+ing (герундий)
+Verb + ing (герундий)
 
-I enjoy listening to music and relaxing
+I enjoy listening to music and relaxing. *Я люблю слушать музыку и отдыхать.*
 
-He kept singing the same song again and again
+He kept singing the same song again and again. *Он продолжал петь одну и ту же песню снова и снова.*
 
-I suggested going to the movies. Tom suggested taking Amy with us
-
+I suggested going to the movies. Tom suggested taking Amy with us. *Я предложил пойти в кино. Том предложил взять с собой Эми.*
+______
 The storm carried on raging outside. People kept coming to our shelter. I think almost every citizen of our town was there. I kept looking people’s faces. They were scared. The officials tried to calm us down. But it was a pretty hard job. I thought Sarah and Jack might be here, too. I wandered around, trying to find them. Finally, I saw Sarah. She was wrapped up in a blanket shivering. I look at her. She raised her head and saw me. I avoided looking her straight in the eyes. I didn’t know what to say or to do. But Sarah stood up quickly, came up to me and hugged me.
 
 Let’s stop avoiding each other, said Sarah. We should finish fighting. I missed you so much, Claire. So did I, Sarah.
 
 We were about to start crying when we heard a familiar voice: Fancy seeing you two together.
 Jack tried to make an expression of annoyance, but it was obvious that he was happy to see us both alive.
-Unit 54. Инфинитив и герундий.
 
-Offer, agree, refuse (отказаться), decide, plan, arrange (договориться), hope, manage, fail, deserve (заслуживать), afford (позволить себе, предоставлять), forget, promise, threaten (угрожать), learn, seem, appear (появляться), tend (иметь тенденцию), pretend (притворяться), claim (требовать)
+## Unit 54. Инфинитив и герундий.
+
+__Offer, agree, refuse *(отказаться)*, decide, plan, arrange *(договориться)*, hope, manage, fail, deserve *(заслуживать)*, afford *(позволить себе, предоставлять)*, forget, promise, threaten *(угрожать)*, learn, seem, appear *(появляться)*, tend *(иметь тенденцию)*, pretend *(притворяться)*, claim *(требовать)*__
 
 to verb
 
-It was late, so we decided to take a taxi home
+It was late, so we decided to take a taxi home. *Было уже поздно, поэтому мы решили взять такси домой.*
 
+Simon was in a difficult situation, so I agreed to help him. *Саймон попал в сложную ситуацию, поэтому я согласился ему помочь.*
 
-Simon was in a difficult situation, so I agreed to help him.
+How old were you, when you learnt to drive? *Сколько вам было лет, когда вы научились водить?*
 
-How old were you, when you learnt to drive?
+I waved to Karen, but failed to attract her attention. *Я помахал Карен, но не смог привлечь ее внимание.*
 
-I waved to Karen, but failed to attract her attention.
+We decided not to go out because of the weather. *Мы решили не выходить из-за погоды*
 
-We decided not to go out because of the weather
+I promised not to be late. *Я обещал не опаздывать*
 
-I promised not to be late
+I enjoy reading. *Я люблю читать*
 
-I enjoy reading
+Tom suggested going to the cinema. *Том предложил пойти в кино*
 
-Tom suggested going to the cinema
+Are you thinking of buying a car? *Вы думаете о покупке автомобиля?*
 
-Are you thinking of buying a car?
+They seem to have plenty of money. *Кажется, у них много денег.*
 
-Было уже поздно, поэтому мы решили взять такси домой.
+I like Dan, but I think he tends to talk too much. *Мне нравится Дэн, но я думаю, что он слишком много болтает.*
 
-Саймон попал в сложную ситуацию, поэтому я согласился ему помочь.
+Ann pretended not to see me when she passed me in the street. *Энн притворилась, что не замечает меня, когда проходила мимо меня на улице.*
 
-Сколько вам было лет, когда вы научились водить?
+I pretended to be reading the newspaper. *Я притворился, что читаю газету.*
 
-Я помахал Карен, но не смог привлечь ее внимание.
+You seem to have lost weight. *Вы, кажется, похудели.*
 
-Мы решили не выходить из-за погоды
+Martin seems to be enjoying his new job. *Мартин, кажется, наслаждается своей новой работой.*
 
-я обещал не опаздывать
+I wouldn’t dare to tell him or I wouldn’t dare tell him. *Я бы не посмел сказать ему, или я бы не посмел сказать ему.*
 
-я люблю читать
+I daren’t tell him what happened. *Я не смею сказать ему, что случилось.*
 
-Том предложил пойти в кино
+Can somebody show me how to change the film in this camera? *Может ли кто-нибудь показать мне, как заменить пленку в этой камере?*
 
-Вы думаете о покупке автомобиля?
+Ask Jack. He’ll tell you what to do. *Спроси Джека. Он скажет вам, что делать*
 
-They seem to have plenty of money
+He refused to talk to me. *Он отказался говорить со мной*
 
-I like Dan, but I think he tends to talk too much
+Don’t forget to subscribe. *Не забудьте подписаться*
 
-Ann pretended not to see me when she passed me in the street
+I agreed to give him that book. *Я согласился дать ему эту книгу*
 
-I pretended to be reading the newspaper
+I promised to pick up my little sister from the nursery. *Я обещал забрать свою младшую сестренку из детской*
 
-You seem to have lost weight
+I offered to discuss the issue later. *Я предложил обсудить этот вопрос позже*
 
-Martin seems to be enjoying his new job.
+I failed to persuade them. *Мне не удалось их переубедить*
 
-I wouldn’t dare to tell him or I wouldn’t dare tell him
+Did you manage to find the information? *Удалось найти информацию?*
 
-I daren’t tell him what happened.
+Did you learn how to draw? *Вы научились рисовать?*
 
-Кажется, у них много денег
+I know where to put it. *Я знаю, где это поставить*
 
-Мне нравится Дэн, но я думаю, что он слишком много болтает.
+I forgot how to spell his last name. *Я забыл, как пишется его фамилия*
 
-Энн притворилась, что не замечает меня, когда проходила мимо меня на улице.
-
-Я притворился, что читаю газету
-
-Вы, кажется, похудели
-
-Мартин, кажется, наслаждается своей новой работой.
-
-Я бы не посмел сказать ему, или я бы не посмел сказать ему
-
-Я не смею сказать ему, что случилось.
-
-Can somebody show me how to change the film in this camera?
-
-Ask Jack. He’ll tell you what to do
-
-Может ли кто-нибудь показать мне, как заменить пленку в этой камере? 
-
-Спроси Джека. Он скажет вам, что делать
-
-He refused to talk to me
-
-Don’t forget to subscribe
-
-I agreed to give him that book
-
-I promised to pick up my little sister from the nursery
-
-I offered to discuss the issue later
-
-I failed to persuade them
-
-Did you manage to find the information?
-
-Did you learn how to draw?
-
-I know where to put it
-
-I forgot how to spell his last name 
-
-We decided not to invite them
-
-Он отказался говорить со мной
-
-Не забудьте подписаться
-
-Я согласился дать ему эту книгу
-
-Я обещал забрать свою младшую сестренку из детской
-
-Я предложил обсудить этот вопрос позже
-
-мне не удалось их переубедить
-
-Удалось найти информацию?
-
-Вы научились рисовать?
-
-Я знаю, где это поставить
-
-Я забыл, как пишется его фамилия
-
-Мы решили не приглашать их
-
+We decided not to invite them. *Мы решили не приглашать их*
+______
 Luckily, the storm didn’t last forever. We managed to go home the next morning. While driving back home from the hotel, Sarah and I were sitting next to each other. She was the first one who decided to bury the hatchet. 
 But I still was a little mad at her. I see that you are still angry, Claire. Will you agree to forgive me? Our friendship to deserves to get a second chance. We’re not enemies.
 
 Nope. I answered. I’m try to figure out what to do next. At that moment, I looked at Jack who was driving. He wasn’t too talkative. He kept whistling all the way home. It was good that he didn’t look offended or angry. It was bad that he still avoided talking to Sarah. He had his own issues with her. I didn’t dare to intrude.
 
-to bury the hatchet - зарыть топор войны
+to bury the hatchet - *зарыть топор войны*
 
-whistling – свистящий
+whistling – *свистящий*
 
-offended – обиженный
+offended – *обиженный*
 
-I didn't dare to intrude - я не смел вторгаться
+I didn't dare to intrude - *я не смел вторгаться*
 
 ## Unit 55. Глагол + объект + to-инфинитив
 
-Want, ask, help, expect, beg (просить), mean (иметь желания или намеренья), would like, would prefer, tell, order (приказывать), remind, warn (предупредить), force (заставлять), invite, encourage (поощрять, побуждать), persuade (убеждать), teach, get (заставлять, побуждать), enable (включать, позволять, давать возможность или право)
+__Want, ask, help, expect, beg *(просить)*, mean *(иметь желания или намеренья)*, would like, would prefer, tell, order *(приказывать)*, remind, warn *(предупредить)*, force *(заставлять)*, invite, encourage *(поощрять, побуждать)*, persuade *(убеждать)*, teach, get *(заставлять, побуждать)*, enable *(включать, позволять, давать возможность или право)*__
 
-объект + to verb
+Объект + to verb
 
-We expected to be late. We expected Dan to be late
+We expected to be late. We expected Dan to be late. *Мы ожидали, что опоздаем. Мы ожидали, что Дэн опоздает*
 
-Would you like to go now? Would you like me to go now?
+Would you like to go now? Would you like me to go now? *Хочешь пойти сейчас? Хочешь, я пойду сейчас?*
 
-He doesn’t want to know. He doesn’t want anybody to know.
+He doesn’t want to know. He doesn’t want anybody to know. *Он не хочет знать. Он не хочет, чтобы кто-нибудь знал.*
 
-Do you want me to come with you?
+Do you want me to come with you? *Хочешь, я пойду с тобой?*
 
-Can you help me to move this table?
+Can you help me to move this table? *Не могли бы вы помочь мне передвинуть этот стол?*
 
-Мы ожидали, что опоздаем. Мы ожидали, что Дэн опоздает
+Can you remind me to phone Sam tomorrow? *Можешь напомнить мне позвонить Сэму завтра?*
 
-Хочешь пойти сейчас? Хочешь, я пойду сейчас?
+Who taught you to drive? *Кто научил тебя водить?*
 
-Он не хочет знать. Он не хочет, чтобы кто-нибудь знал.
+I didn’t move the piano by myself. I got somebody to help me. *Я не двигал пианино сам. У меня есть кое-кто, чтобы помочь мне.*
 
-Хочешь, я пойду с тобой?
+Jim said the switch was dangerous and warned me not to touch it. *Джим сказал, что переключатель опасен, и предупредил меня не трогать его.*
 
-Не могли бы вы помочь мне передвинуть этот стол?
+I was warned not to touch the switch. *Меня предупредили не трогать переключатель.*
 
-Can you remind me to phone Sam tomorrow?
+Jane suggested that I should ask your advice. *Джейн посоветовала мне спросить вашего совета.*
 
-Who taught you to drive?
+__Advise, recommend, allow + объект + to verb or verb + ing__
 
-I didn’t move the piano by myself. I got somebody to help me.
+I wouldn’t advise/recommend staying in that hotel. I wouldn’t advise/recommend anybody to stay in that hotel. *Я бы не советовал/рекомендовал останавливаться в этом отеле. Никому не советую/рекомендую останавливаться в этом отеле.*
 
-Jim said the switch was dangerous and warned me not to touch it.
+They don’t allow parking in front of the building. They don’t allow people to park in front of the building. *Они не разрешают парковаться перед зданием. Они не позволяют людям парковаться перед зданием.*
 
-I was warned not to touch the switch
+Parking isn’t allowed in front of the building. You aren’t allowed to park in front of the building. *Парковка перед зданием запрещена. Вам не разрешается парковаться перед зданием.*
 
-Jane suggested that I should ask your advice.
+__Make, let + verb__
 
-Можешь напомнить мне позвонить Сэму завтра?
+I made him promise that he wouldn’t tell anybody what happened. *Я заставил его пообещать, что он никому не расскажет, что случилось*
 
-Кто научил тебя водить?
+Hot weather makes me feel tired. *Жаркая погода заставляет меня чувствовать усталость*
 
-Я не двигал пианино сам. У меня есть кое-кто, чтобы помочь мне.
+Her parents wouldn’t let her go out alone. *Родители не отпускали ее одну*
 
-Джим сказал, что переключатель опасен, и предупредил меня не трогать его.
+Let me carry your bag for you. *Позвольте мне нести вашу сумку для вас*
 
-Меня предупредили не трогать переключатель.
+We were made to wait for two hours. *Нас заставили ждать два часа*
 
-Джейн посоветовала мне спросить вашего совета.
+## Практика 55.
 
-Advise, recommend, allow + объект + to verb or verb + ing
+Did she really make him marry her? *Она действительно заставила его жениться на ней?*
 
-I wouldn’t advise/recommend staying in that hotel. I wouldn’t advise/recommend anybody to stay in that hotel.
-They don’t allow parking in front of the building. They don’t allow people to park in front of the building.
-Parking isn’t allowed in front of the building. You aren’t allowed to park in front of the building.
-Я бы не советовал/рекомендовал останавливаться в этом отеле. Никому не советую/рекомендую останавливаться в этом отеле.
+I wouldn’t advise you to make friends with him? *Я бы не советовал тебе с ним заводить дружбу?*
 
-Они не разрешают парковаться перед зданием. Они не позволяют людям парковаться перед зданием.
-Парковка перед зданием запрещена. Вам не разрешается парковаться перед зданием.
+Weren’t you warned not to touch anything here? *Разве тебя не предупреждали ничего здесь не трогать?*
 
-Make, let + verb
+She doesn’t’ allow anyone to take her smartphone. *Она не позволяет никому брать ее смартфон*
 
-I made him promise that he wouldn’t tell anybody what happened
-
-Hot weather makes me feel tired
-
-Her parents wouldn’t let her go out alone
-
-Let me carry your bag for you
-
-We were made to wait for two hours
-
-Я заставил его пообещать, что он никому не расскажет, что случилось
-
-Жаркая погода заставляет меня чувствовать усталость
-
-Родители не отпускали ее одну
-
-Позвольте мне нести вашу сумку для вас
-
-Нас заставили ждать два часа.
-
-### Практика
-
-Did she really make him marry her?
-
-I wouldn’t advise you to make friends with him?
-
-Weren’t you warned not to touch anything here?
-
-She doesn’t’ allow anyone to take her smartphone
-
-He helped me (to) change the tire
-
-Она действительно заставила его жениться на ней?
-
-Я бы не советовал тебе с ним заводить дружбу?
-
-Разве тебя не предупреждали ничего здесь не трогать?
-
-Она не позволяет никому брать ее смартфон
-
-Он помог мне сменить шину.
-
+He helped me (to) change the tire. *Он помог мне сменить шину.*
+_______
 Hi there! Would you like to feel like a child again? Then you must definitely go to our local fair. Sarah wanted us to celebrate our reunion and she chose to do it in her own way – in the amusement park. The only condition was not to play shooting games, just in case.
 
 We asked Jack to go with us, but he decided to stay home. By the way, he still with me. I invited him to stay in my place as long as he needed. So, I believe it might look rude to force him to move out.
@@ -268,10 +164,9 @@ We asked Jack to go with us, but he decided to stay home. By the way, he still w
 Sarah and I had a ride on most of the attractions. I almost forced Sarah to go on a roller coaster and the Ferris wheel. I felt like I was 10 again riding a merry-go-round, but I felt sick while spinning in the teacup.
 A fortune-teller persuaded Sarah to come into her tent. She said that Sarah would soon meet her love. I don’t believe in fortune-telling. But guess what? We came across Mrs. Adam’s son a few moments later.
 
-
 ## Unit 56. Инфинитив или герундий.
 
- Admit (признаться), avoid, consider (рассматривать), deny (отказываться что-то делать), enjoy, fancy (делать что-то с удовольствием), finish, imagine, keep (on), mind, postpone (откладывать), risk (рисковать), stop, suggest 
+Admit (признаться), avoid, consider (рассматривать), deny (отказываться что-то делать), enjoy, fancy (делать что-то с удовольствием), finish, imagine, keep (on), mind, postpone (откладывать), risk (рисковать), stop, suggest 
 
 verb+ing
 
