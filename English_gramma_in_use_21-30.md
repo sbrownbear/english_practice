@@ -1,52 +1,52 @@
-## Unit 21. Future Simple простое будущее время. Will and shell
+## Unit 21. Future Simple простое будущее время. Will and shell.
 
-Oh, I’ve left the door open. I’ll go and shut it. 
+Oh, I’ve left the door open. I’ll go and shut it. *О, я оставил дверь открытой. Я пойду и закрою его.*
 
-What would you like to drink? I’ll have an orange juice, please. 
+What would you like to drink? I’ll have an orange juice, please. *Чтобы ты хотел выпить? Мне апельсиновый сок, пожалуйста.*
 
-Did you phone Lucy? Oh no, I forgot. I’ll phone her now.
+Did you phone Lucy? Oh no, I forgot. I’ll phone her now. *Ты звонил Люси? О нет, я забыл. Я позвоню ей сейчас.*
 
-I’ll go and shut the door.
+I’ll go and shut the door. *Я пойду и закрою дверь.*
 
-I feel a bit hungry. I think I’ll have something to eat.
+I feel a bit hungry. I think I’ll have something to eat. *Я чувствую себя немного голодным. Думаю, мне будет что поесть.*
 
-I don’t think I’ll go out tonight. I’m too tired.
+I don’t think I’ll go out tonight. I’m too tired. *Я не думаю, что выйду сегодня вечером. Я слишком устал.*
 
-I can see you’re busy, so I won’t stay long.
+I can see you’re busy, so I won’t stay long. *Я вижу, ты занят, так что я не задержусь.*
 
-That bag looks heavy. I’ll help you with it.
+That bag looks heavy. I’ll help you with it. *Эта сумка выглядит тяжелой. Я помогу тебе с этим.*
 
-Can you give Tim this book? – Sure, I’ll give it to him when I see him this afternoon.
+Can you give Tim this book? – Sure, I’ll give it to him when I see him this afternoon. *Можешь дать Тиму эту книгу? – Конечно, я отдам ему, когда увижу его сегодня днем.*
 
-Thanks for lending me the money. I’ll pay you back on Friday.
+Thanks for lending me the money. I’ll pay you back on Friday. *Спасибо, что одолжил мне деньги. Я верну тебе деньги в пятницу.*
 
-I won’t tell anyone what happened. I promise.
+I won’t tell anyone what happened. I promise. *Я никому не скажу, что произошло. Обещаю.*
 
-Will you please turn the stereo down? I’m trying to concentrate.
+Will you please turn the stereo down? I’m trying to concentrate. *Не могли бы вы сделать стерео потише? Я пытаюсь сосредоточиться.*
 
-I’ve tried to give her advice, but she won’t listen.
+I’ve tried to give her advice, but she won’t listen. *Я пытался дать ей совет, но она не слушает.*
 
-The car won’t start.
+The car won’t start. *Машина не заводится.*
 
-Shall I open the window?
+Shall I open the window? *Мне открыть окно?*
 
-I’ve got no money. What shall I do?
+I’ve got no money. What shall I do? *У меня нет денег. Что мне делать?*
 
-Shall we go? Just a minute. I’m not ready yet.
+Shall we go? Just a minute. I’m not ready yet. *Пойдем? Минуточку. Я еще не готов.*
 
-Where shall we go this evening?
+Where shall we go this evening? *Куда пойдем сегодня вечером?*
 
-Shall I shut the door?
+Shall I shut the door? *Мне закрыть дверь?*
 
-Will you shut the door?
+Will you shut the door? *Ты закроешь дверь?*
 
-I’ll help mom with her chores.
+I’ll help mom with her chores. *Я помогу маме с ее делами.*
 
-The vacuum cleaner won’t start, maybe it’s broken
+The vacuum cleaner won’t start, maybe it’s broken. *Пылесос не запускается, возможно он сломался*
 
-I think I’ll explain in to you again.
+I think I’ll explain in to you again. *Думаю, я объясню вам еще раз.*
 
-Will you please let me know if you need any help?
+Will you please let me know if you need any help? *Пожалуйста, дайте мне знать, если вам нужна помощь?*
 
 ## Unit 22. I will do or I’m doing. Will or shall
 
@@ -84,7 +84,7 @@ They’ll probably wait for us. We will probably leave right now.
 
 I hope you have a nice stay here. I don’t think there will be a storm tomorrow.
 
-### Практика 22
+## Практика 22.
 
 Hi there. I’ve just talked to Sarah. She says Jack’s going to pass his driving test on Friday. He’s already changed his Facebook status to: ‘Don’t call me on Friday at eight thirty, I’m passing my driving test’. I wonder how many of his friends will read it.
 
@@ -114,7 +114,7 @@ I think Sarah will like the present we bought for her.
 
 These shoes are very well-made. They’ll last a long time.
 
-### Практика 23
+## Практика 23.
 
 I’m going to see the doctor Собираюсь, выражаю намерение 
 
@@ -130,7 +130,7 @@ Hi there. Out teacher told us about goal-setting theory. He seems to be sure tha
 
 I’m sure I’m going to graduate from university. Then, I hope I’ll find inspiration for writing a novel. I often promise myself I’ll write a lot to become a successful writer. I once read that Stephen King writes 6 pages every day to get inspiration. So, I’m going to write every day, too, even if I have nothing to write about.  
 
-## Unit 24 Future Continuous and Future Perfect 
+## Unit 24. Future Continuous and Future Perfect.
 
 These people are standing in a queue to get into the cinema. Люди стоят в очереди что бы попасть в кинотеатр. Все пойдут домой.
 
@@ -174,7 +174,7 @@ Next year they will have been married for 25 years.
 
 When their son was born, they had been married for three years.
 
-## Unit 25 Conditional 1, if/when I do, I will
+## Unit 25. Conditional 1, if/when I do, I will.
 
 Will you phone me tomorrow? – Yes, I’ll phone you when I get home from work
 
@@ -222,7 +222,7 @@ Don’t worry if I’m late tonight.
 
 If they don’t come soon, I’m not going to wait.
 
-## Практика 25
+## Практика 25.
 
 If I meet Johnny Depp, I’ll try to kiss him.
 
@@ -244,7 +244,7 @@ I’ll inform you when I come back.
 
 Yours sincerely, Mrs. Adam.
 
-## Unit 26. Can, could, be able to
+## Unit 26. Can, could, be able to.
 
 We can see the lake from our bedroom window
 
@@ -368,7 +368,7 @@ The trip was cancelled last week. Paul couldn’t have gone anyway because he wa
 
 Путешествие отменили на прошлой недели, Пол не смог бы поехать в любом случае, потому что был болен. 
 
-### Практика 27
+## Практика 27.
 
 Mike couldn’t call me yesterday because he was busy at work
 
@@ -387,7 +387,7 @@ When I woke up, I felt my cell phone vibrating. It was Jack. He was gasping sayi
 
 I thought he was pulling my leg, though he could have come up with a better joke. But he wasn’t joking. Sarah was gone. They split up some time before the shot and when panic started, Jack couldn’t find her in the crowd. All I could do was contacting all our friends and acquaintances asking any up-to-date information about Sarah. If you saw her anywhere, let me know ASAP.
 
-## Unit 28. Must. Must have
+## Unit 28. Must. Must have.
 
 You’ve been travelling all day. You must be tired. 
 
@@ -419,7 +419,7 @@ Sue couldn’t have got my message.
 
 Tom couldn’t have been looking where he was going.
 
-### Практика 28
+## Практика 28.
 
 Claire got an e-mail from Otto, her cousin.
 
@@ -486,7 +486,7 @@ We might as well. It’s a nice day and I don’t want to wait here for an hour.
 
 What time are you going out? Well, I’m ready, so I might as well go now.
 
-### Практика 30
+## Практика 30.
 
 What are you doing tomorrow, Clark? – I don’t know. I might stay with my girl.
 

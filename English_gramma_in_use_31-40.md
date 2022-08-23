@@ -158,222 +158,149 @@ We watched Mary Poppins. Honestly, guys, it’s such a warm stuff. That’s the 
 
 ## Unit 38. Second Conditional. If
 
-I’ve lost my watch. Have you seen it anywhere? - No, but if I found it, I’d tell you.
+I’ve lost my watch. Have you seen it anywhere? - No, but if I found it, I’d tell you. *Я потерял свои часы. Вы видели это где-нибудь? - Нет, но если бы я нашел, я бы сказал тебе.*
 
-What would you do if you won a million pounds?
+What would you do if you won a million pounds? *Что бы вы сделали, если бы выиграли миллион фунтов стерлингов?*
 
-I don’t really want to go to their party, but I probably will go. They’d be upset, if I didn’t go.
+I don’t really want to go to their party, but I probably will go. They’d be upset, if I didn’t go. *Я не очень хочу идти на их вечеринку, но, наверное, пойду. Они расстроятся, если я не поеду.*
 
-If there was (were) an election tomorrow, who would you vote for?
+If there was (were) an election tomorrow, who would you vote for? *Если бы завтра были выборы, за кого бы вы проголосовали?*
 
-I’d be very frightened if somebody pointed a gun at me.
+I’d be very frightened if somebody pointed a gun at me. *Я бы очень испугался, если бы кто-то направил на меня пистолет.*
 
-If I didn’t go to their party, they’d be upset.
+If I didn’t go to their party, they’d be upset. *Если я не пойду на их вечеринку, они расстроятся.*
 
-I would be grateful if you would let me know your decision as soon as possible.
+I would be grateful if you would let me know your decision as soon as possible. *Я был бы признателен, если бы вы сообщили мне о своем решении как можно скорее.*
 
-If you took more exercise, you’d feel better.
+If you took more exercise, you’d feel better. *Если бы вы больше занимались спортом, вы бы чувствовали себя лучше.*
 
-I’m not tired. If I went to bed now, I wouldn’t sleep.
+I’m not tired. If I went to bed now, I wouldn’t sleep. *Я не устал. Если бы я сейчас лег спать, я бы не заснул.*
 
-Would you mind if I used you phone?
+Would you mind if I used you phone? *Вы не возражаете, если я воспользуюсь вашим телефоном?*
 
-If you took more exercise, you might feel better.
+If you took more exercise, you might feel better. *Если бы вы больше занимались спортом, вы могли бы чувствовать себя лучше.*
 
-If it stopped raining, we could go out.
+If it stopped raining, we could go out. *Если бы дождь прекратился, мы могли бы выйти.*
 
-They’d be upset if I didn’t go to their party.
+They’d be upset if I didn’t go to their party. *Они расстроятся, если я не пойду на их вечеринку.*
 
-What would you do if you were bitten by a snake?
+What would you do if you were bitten by a snake? *Что бы вы сделали, если бы вас укусила змея?*
 
-You’re just in time. If you were a little bit later, you wouldn’t get any cake.
+You’re just in time. If you were a little bit later, you wouldn’t get any cake. *Вы как раз вовремя. Если бы вы были немного позже, вы бы не получили никакого торта.*
 
-If you weren’t so rude, I would share these sweets with you.
+If you weren’t so rude, I would share these sweets with you. *Если бы ты не был таким грубым, я бы поделился с тобой этими сладостями.*
 
-If people had a conscience, it would be much easier to deal with them.
+If people had a conscience, it would be much easier to deal with them. *Если бы у людей была совесть, с ними было бы гораздо проще иметь дело.*
 
-If I get fired, it will be impossible for me to earn enough money for a new car.
+If I get fired, it will be impossible for me to earn enough money for a new car. *Если меня уволят, я не смогу заработать достаточно денег на новую машину.*
 
-If I got fired, it would be impossible for me to earn enough money for a new car.
+If I got fired, it would be impossible for me to earn enough money for a new car. *Если меня уволят, я не смогу заработать достаточно денег на новую машину.*
 
 ### Практика 38
 
-Hi guys. I’m in a strange mood today. It might be called “If ifs and ands were pots and pans” I’m sure you know what I mean.
+Hi guys. I’m in a strange mood today. It might be called “If ifs and ands were pots and pans” I’m sure you know what I mean. *Привет, ребята. Я сегодня в странном настроении. Его можно было бы назвать «Если бы «если бы» и «и» были кастрюлями и сковородками». Я уверен, вы понимаете, что я имею в виду.*
 
-If I had more money, I would eat healthier food and I wouldn’t get overweight.
+If I had more money, I would eat healthier food and I wouldn’t get overweight. *Если бы у меня было больше денег, я бы ел более здоровую пищу и не набирал бы лишний вес.*
 
-If I had a boyfriend, I would be happier and would be more motivated to keep fit.
+If I had a boyfriend, I would be happier and would be more motivated to keep fit. *Если бы у меня был парень, я была бы счастливее и у меня было бы больше мотивации поддерживать себя в форме.*
 
-If I had a better job, I would be far richer than I am now.
+If I had a better job, I would be far richer than I am now. *Если бы у меня была работа получше, я был бы намного богаче, чем сейчас.*
 
-But the thing is there is no possibility to check it out.
+But the thing is there is no possibility to check it out. *Но дело в том, что нет возможности это проверить.*
 
-Maybe if there were a chance, I would prefer getting lost instead of Sarah. But would it be better?
+Maybe if there were a chance, I would prefer getting lost instead of Sarah. But would it be better? *Может быть, если бы был шанс, я бы предпочел заблудиться вместо Сары. Но было бы лучше?*
 
-I know that if I keep thinking like that, I will get very depressed. So, I’d better pull myself together and continue doing something useful like learning German.
+I know that if I keep thinking like that, I will get very depressed. So, I’d better pull myself together and continue doing something useful like learning German. *Я знаю, что если буду продолжать так думать, то впаду в депрессию. Так что лучше возьму себя в руки и продолжу заниматься чем-то полезным, например, учить немецкий.*
 
 ## Unit 39 If I knew. I wish.
 
-If I knew his number, I would phone him. 
+If I knew his number, I would phone him. *Если бы я знала его номер, то я бы позвонила бы.*
 
-He would read more, if he had more time.
+He would read more, if he had more time. *Том бы больше читал, если было бы больше времени.*
 
-If I didn’t want to go to the party, I wouldn’t go.
+If I didn’t want to go to the party, I wouldn’t go. *Если бы я не хотел идти на вечеринку, я бы не ходил.*
 
-We wouldn’t have any money, if we didn’t work.
+We wouldn’t have any money, if we didn’t work. *У нас бы не было денег, если бы не работали.*
 
-If you were in my position, what would you do?
+If you were in my position, what would you do? *Если ты был на моем месте, что бы ты сделал?*
 
-It’s a pity you can’t drive. It would be useful if you could.
+It’s a pity you can’t drive. It would be useful if you could. *Жаль, что ты не можешь водить. Было бы полезно, если бы могла.*
 
-Если бы я знала его номер, то я бы позвонила бы.
+I wish I had an umbrella. *Жаль, что нет зонта. Или. Я бы хотел иметь зонт.*
 
-Том бы больше читал, если было бы больше времени.
+I wish I knew Paul’s phone number. *Я бы хотел, чтобы у меня был номер Пола. Или. Жаль, что у меня нет номера Пола.*
 
-Если бы я не хотел идти на вечеринку, я бы не ходил
+Do you ever wish you could fly? *Ты когда-нибудь жалела, что не можешь летать? Вы когда-нибудь хотели, чтобы вы могли летать?*
 
-У нас бы не было денег, если бы не работали
+It rains a lot here. I wish it didn’t rain so often. *Здесь очень часто ходит дождь. Я хочу, чтобы дождь не шел так часто*
 
-Если ты был на моем месте, что бы ты сделал?
+It’s very crowded here. I wish there weren’t so many people. *Здесь очень многолюдно. Я хочу, чтобы не было так много людей.*
 
-Жаль, что ты не можешь водить. Было бы полезно, если бы могла
+I wish I didn’t have to work tomorrow, but unfortunately I do. *Я бы хотел, чтобы мне не пришлось работать завтра, но, к сожалению, приходится.*
 
-I wish I had an umbrella.
+If I were (was) you, I wouldn’t buy that coat. *Если бы я был (был) тобой, я бы не купил это пальто.*
 
-I wish I knew Paul’s phone number.
+I’d go out if it weren’t (wasn’t) so cold. *Я бы вышел, если бы не было (не было) так холодно.*
 
-Do you ever wish you could fly?
+I wish Carol were (was) here. *Хотел бы я, чтобы Кэрол была здесь.*
 
-It rains a lot here. I wish it didn’t rain so often
+If I were rich, I would have a yacht. *Если бы я был богат, у меня была бы яхта.*
 
-It’s very crowded here. I wish there weren’t so many people.
+I wish I had something to read. *Хотел бы я что-нибудь почитать.*
 
-I wish I didn’t have to work tomorrow, but unfortunately I do.
+You could get a better job if you could use a computer. *Ты мог бы получить работу лучше, если бы ты мог пользоваться компьютером.*
 
-Жаль, что нет зонта. Или. Я бы хотел иметь зонт.
+I wish I had pockets. If I had pockets, I would put my hands into them. *Хотел бы я иметь карманы. Если бы у меня были карманы, я бы сунул в них руки.*
 
-Я бы хотел, чтобы у меня был номер Пола. Или. Жаль, что у меня нет номера Пола.
+Do you wish you had siblings? *Хотели бы вы, чтобы у вас были братья и сестры?*
 
-Ты когда-нибудь жалела, что не можешь летать? Вы когда-нибудь хотели, чтобы вы могли летать?
+I would like to change the world? I wish I had superpowers like a wizard or a superhero. *Я хотел бы изменить мир? Хотел бы я иметь сверхспособности, как у волшебника или супергероя.*
 
-Здесь очень часто ходит дождь. Я хочу, чтобы дождь не шел так часто
+## Практика 39.
 
-Здесь очень многолюдно. Я хочу, чтобы не было так много людей.
+Do you want to know what I’m thinking about? ‘Wish’ is probably my favorite word. It somehow reminds me of my childhood and magic. *Хочешь знать, о чем я думаю? «Желание», наверное, мое любимое слово. Это чем-то напоминает мне мое детство и волшебство.*
 
-Я бы хотел, чтобы мне не пришлось работать завтра, но, к сожалению, приходится.
+I remember I wanted to have the magic lamp like Aladdin. I still wish I had it. I’m sure lots of people think to themselves “I wish I had a lamp like Aladdin or a fairy godmother like Cinderella. I wish I had magic powers to solve all my problems.” *Помню, я хотел иметь волшебную лампу, как у Аладдина. Я все еще хочу, чтобы он у меня был. Я уверен, что многие люди думают про себя: «Хотел бы я иметь лампу, как у Аладдина, или фею-крестную, как у Золушки». Хотел бы я, чтобы у меня были волшебные силы, чтобы решить все мои проблемы».*
 
-If I were (was) you, I wouldn’t buy that coat.
+Speaking of wishes, not many people really know what they want. I’m sure you wish you had more money. But do you actually know what you are going to do with it? *Говоря о желаниях, не многие люди действительно знают, чего они хотят. Я уверен, что вы хотели бы иметь больше денег. Но знаете ли вы на самом деле, что вы собираетесь с ним делать?*
 
-I’d go out if it weren’t (wasn’t) so cold.
+Every girl dreams: “I wish I met my Price Charming”. But she is apparently not ready to share a bathroom with him. *Каждая девушка мечтает: «Хотел бы я встретить свою Прекрасную Цену». Но она, видимо, не готова делить с ним ванную.*
 
-I wish Carol were (was) here.
-
-Если бы я был (был) тобой, я бы не купил это пальто
-
-Я бы вышел, если бы не было (не было) так холодно.
-
-Хотел бы я, чтобы Кэрол была здесь.
-
-If I were rich, I would have a yacht.
-
-I wish I had something to read.
-
-You could get a better job if you could use a computer.
-
-Если бы я был богат, у меня была бы яхта.
-
-Хотел бы я что-нибудь почитать.
-
-Ты мог бы получить работу лучше, если бы ты мог пользоваться компьютером.
-
-I wish I had pockets. If I had pockets, I would put my hands into them.
-
-Do you wish you had siblings?
-
-I would like to change the world? I wish I had superpowers like a wizard or a superhero.
-
-Хотел бы я иметь карманы. Если бы у меня были карманы, я бы сунул в них руки.
-
-Хотели бы вы, чтобы у вас были братья и сестры?
-
-Я хотел бы изменить мир? Хотел бы я иметь сверхспособности, как у волшебника или супергероя.
-
-### Практика
-
-Do you want to know what I’m thinking about? ‘Wish’ is probably my favorite word. It somehow reminds me of my childhood and magic.
-
-I remember I wanted to have the magic lamp like Aladdin. I still wish I had it. I’m sure lots of people think to themselves “I wish I had a lamp like Aladdin or a fairy godmother like Cinderella. I wish I had magic powers to solve all my problems.”
-
-Speaking of wishes, not many people really know what they want. I’m sure you wish you had more money. But do you actually know what you are going to do with it?
-
-Every girl dreams: “I wish I met my Price Charming”. But she is apparently not ready to share a bathroom with him.
-
-That’s a big problem for all of us. We wish someone would solve our problems. And we always wish more than we can actually handle.
+That’s a big problem for all of us. We wish someone would solve our problems. And we always wish more than we can actually handle. *Это большая проблема для всех нас. Мы хотим, чтобы кто-то решил наши проблемы. И мы всегда желаем больше, чем можем вынести.*
 
 ## Unit 40. If I had known. Conditional 3.
 
-If I had known you were in hospital, I would have gone to see you.
+If I had known you were in hospital, I would have gone to see you. Если бы я знал, что ты лежал в больнице, то я бы пришел навести тебя
 
-I didn’t see you when you passed me in the street. If I’d seen you, of course I would have said hello. (but I didn’t see you)
+I didn’t see you when you passed me in the street. If I’d seen you, of course I would have said hello. (but I didn’t see you). *Я не видел тебя, когда ты проходил мимо меня на улице. Если бы я тебя увидел, то, конечно, поздоровался бы. (но я тебя не видел)*
 
-I decided to stay at home last night. I would had gone out if I hadn’t been so tired.
-(but I was tired)
+I decided to stay at home last night. I would had gone out if I hadn’t been so tired (but I was tired). *Вчера я решил остаться дома. Я бы вышел, если бы не так устал. (но я устал)*
 
-If he had been looking where he was going, he wouldn’t have walked into the wall
-(but he wasn’t looking)
+If he had been looking where he was going, he wouldn’t have walked into the wall (but he wasn’t looking). *Если бы он смотрел, куда идет, он бы не врезался в стену (но он не смотрел)*
 
-The view was wonderful. If I’d had a camera with me, I would have taken some photographs. (but I didn’t have a camera)
+The view was wonderful. If I’d had a camera with me, I would have taken some photographs. (but I didn’t have a camera). *Вид был прекрасным. Если бы у меня был с собой фотоаппарат, я бы сделал несколько фотографий. (но у меня не было фотоаппарата)*
 
-Compare.
+Now | Past
+---|---
+I’m not hungry. If I was hungry, I would eat something. | I wasn’t hungry. If I had been hungry, I would have eaten something.
+*Я не голоден. Если бы я был голоден, я бы съел что-нибудь.* | *Я не был голоден. Если бы я был голоден, я бы съел что-нибудь.*
 
-I’m not hungry. If I was hungry, I would eat something. (now)
+If I had seen you, I would have said hello. *Если бы я тебя увидел, я бы поздоровался.*
 
-I wasn’t hungry. If I had been hungry, I would have eaten something. (past)
+I wish I’d known that Gary was ill. I would have gone to see him. *Хотел бы я знать, что Гэри был болен. Я бы пошел к нему.*
 
-Если бы я знал, что ты лежал в больнице, то я бы пришел навести тебя
+I feel sick. I wish I hadn’t eaten so much cake. *Я заболел. Жаль, что я съел так много торта.*
 
-Я не видел тебя, когда ты проходил мимо меня на улице. Если бы я тебя увидел, то, конечно, поздоровался бы. (но я тебя не видел)
+Do you wish you had studied science instead of languages? *Жалеете ли вы, что вы не изучали науку вместо языков?*
 
-Вчера я решил остаться дома. Я бы вышел, если бы не так устал.
-(но я устал)
+The weather was cold while we were away. I wish it had been warmer. *Пока нас не было, погода была холодной. Хотелось бы, чтобы было теплее.*
 
-Если бы он смотрел, куда идет, он бы не врезался в стену
-(но он не смотрел)
+If I had gone to the party last night, I would be tired now. *Если бы я вчера пошел на вечеринку, то сейчас был бы уставшим (настоящее – я сейчас не уставший)*
 
-Вид был прекрасным. Если бы у меня был с собой фотоаппарат, я бы сделал несколько фотографий. (но у меня не было фотоаппарата)
+If I had gone to the party last night, I would have met lots of people. *Если бы я вчера пошел на вечеринку, то я бы встретил много людей (вчера я не встретил много людей - прошлое)*
 
-Сравнивать.
 
-Я не голоден. Если бы я был голоден, я бы съел что-нибудь. (сейчас)
 
-Я не был голоден. Если бы я был голоден, я бы съел что-нибудь.
 
-If I had seen you, I would have said hello
-
-I wish I’d known that Gary was ill. I would have gone to see him.
-
-I feel sick. I wish I hadn’t eaten so much cake.
-
-Do you wish you had studied science instead of languages?
-
-The weather was cold while we were away. I wish it had been warmer.
-
-Если бы я тебя увидел, я бы поздоровался
-
-Хотел бы я знать, что Гэри был болен. Я бы пошел к нему.
-
-Я заболел. Жаль, что я съел так много торта.
-
-Жалеете ли вы, что вы не изучали науку вместо языков?
-
-Пока нас не было, погода была холодной. Хотелось бы, чтобы было теплее.
-
-If I had gone to the party last night, I would be tired now.
-
-If I had gone to the party last night, I would have met lots of people.
-
-Если бы я вчера пошел на вечеринку, то сейчас был бы уставшим (настоящее – я сейчас не уставший)
-
-Если бы я вчера пошел на вечеринку, то я бы встретил много людей (вчера я не встретил много людей - прошлое)
 
 
