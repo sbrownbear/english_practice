@@ -411,4 +411,328 @@ Here’s what I noticed about Americans – they talk too much. I mean, they are
 
 *Вот что я заметил в американцах — они слишком много говорят. Я имею в виду, они всегда говорят как радио. И делают это так, чтобы все слышали. Громко говорить в общественных местах — часть нашей культуры, хотя обычно мы этого не осознаем. Но это удивительно раздражает, когда ты не в США. Я хотел поехать из Америки, но каждый раз, когда я выхожу на улицу, я сталкиваюсь с американцами. Более того, я пару раз ловил себя на мысли, что вижу Джека или слышу его голос. Похоже, в целом мире нет места, где можно спрятаться от самого себя.*
 
+## Unit 87 Местоимения: количественные - much, many, little, few, a lot
+
+Much time, much luck, little energy, little money. *Много времени, много удачи, мало энергии, мало денег.*
+
+Many friends, many people, few cars, few countries. *Много друзей, много людей, мало машин, мало стран.*
+
+A lot of luck, a lot of friends, lots of time, lots of people, plenty of money, plenty of ideas. *Много удачи, много друзей, много времени, много людей, много денег, много идей.*
+
+There’s no need to hurry. We’ve got plenty of time. *Нет нужды торопиться. У нас полно времени.*
+
+We didn’t spend much money. But. We spent a lot of money (not we spent much money). *Мы не тратили много денег. Но. Мы потратили много денег*
+
+Do you see David much? But. I see David a lot (not I see David much). *Ты часто видишься с Дэвидом? Но. Я часто вижу Дэвида*
+
+Many people drive too fast. Or. A lot of people drive too fast. *Многие люди ездят слишком быстро. Или же. Многие люди ездят слишком быстро.*
+
+Do you know many people? Or Do you know a lot of people? *Ты знаешь многих людей? Или вы знаете много людей?*
+
+There aren’t many tourists here. Or There aren’t a lot of tourists here. *Здесь не так много туристов. Или здесь мало туристов.*
+
+We’ve lived here for many years (not a lot of years). *Мы живем здесь много лет (не много лет).*
+
+Gary is very busy with his job. He has little time for other things (= not much time, less time than he would like). *Гэри очень занят своей работой. У него мало времени на другие дела*
+
+Vicky doesn’t like living in London. She has few friends there (=not many, not as many as she would like). *Вики не нравится жить в Лондоне. У нее там мало друзей*
+
+Gary has very little time for other things. *У Гэри очень мало времени на другие дела.*
+
+Let’s go and have a coffee. We have a little time before the train leaves (a little time = some time, enough time to have a coffee). *Пойдем выпьем кофе. У нас есть немного времени до отправления поезда (немного времени, достаточно времени, чтобы выпить кофе)*
+
+Do you speak English? – a little (so we can talk a bit). *Ты говоришь на английском? - немного (чтобы мы могли немного поговорить)*
+
+I enjoy my life here. I have a few friends and we meet quite often. (a few friends = not many but enough to have a good time). *Я наслаждаюсь своей жизнью здесь. У меня есть несколько друзей, и мы довольно часто встречаемся. (немного, но достаточно, чтобы хорошо провести время)*
+
+When was the last time you saw Clare? – A few days ago. (=some days ago). *Когда вы в последний раз видели Клэр? - Несколько дней назад.*
+
+He spoke little English, so it was difficult to communicate with him. *Он плохо говорил по-английски, поэтому с ним было трудно общаться.*
+
+He spoke a little English, so we were able to communicate with him. *Он немного говорил по-английски, поэтому мы смогли с ним общаться.*
+
+She’s lucky. She has few problems. (=not many problems). *Ей повезло. У нее мало проблем.*
+
+Things are not going so well for her. She has a few problems. (= some problems). *Дела у нее идут не так хорошо. У нее есть несколько проблем.*
+
+Hurry. We only have a little time. (not only little time). *Торопиться. У нас есть только немного времени.*
+
+The village was very small. There were only a few houses. (not only few houses). *Деревня была очень маленькой. Было всего несколько домов.*
+
+## Практика 87. "МНОГО" и "МАЛО".
+
+*'Много' на английском: much, many, a lot (of), lots of, plenty (of). Much употребляется перед неисчисляемыми существительными. Many стоит перед исчисляемыми во множественном числе. A lot of (lots of) употребляется с любыми существительными. Plenty of слишком много (больше, чем нужно). Much употребляется в вопросах и отрицаниях, а в утверждениях обычно не используется. A lot of и many используется в любом типе предложений.*
+
+*'Мало' на английском: few и little. Little используем с неисчисляемыми. Few с исчисляемыми существительными. A few/a little немного, но достаточно (позитивный оттенок смысла)*
+______
+Jason is a farmer. He has good crops this year. He gathered many grapes. He will make a lot of wine of these grapes. He’s got plenty of wheat, so he will sell part of it. He already has a few buyers. He doesn’t’ have much rye though. He has already saved a little money to buy more rye.
+
+*Джейсон — фермер. В этом году у него хорошие урожаи. Он собрал много винограда. Он сделает много вина из этого винограда. У него много пшеницы, поэтому он продаст часть ее. У него уже есть несколько покупателей. Хотя у него не так много ржи. Он уже накопил немного денег, чтобы купить больше ржи.*
+________
+I noticed that a lot of women and young girls in Paris smoke. There are actually lots of smokers here. You can find many smokers having cigarette breaks outside everywhere and it’s pretty weird to me.
+
+I guess that 20 years ago it was acceptable in the US to take a 10-minute break at work every 60-90 minutes. It didn’t take much time, but you could go outside and socialize. Most companies today don’t tolerate cigarette breaks anymore. Today you are expected not to smoke. If you must smoke, then you are expected to do in before/after work or at lunch. Or sneak for a vape in the bathroom. I know a few smokers, not most people prefer not to smoke. My dad told me that those cigarette breaks were a real thing. Every company was absolutely fine with you taking 5-8 breaks a day to go outside and smoke and chat it up with the other smokers. It looks quite strange to me though, when I see in here, in France.
+
+*Я заметил, что многие женщины и молодые девушки в Париже курят. На самом деле здесь очень много курящих. Вы можете найти много курильщиков, делающих перекуры на улице повсюду, и это довольно странно для меня.*
+
+*Я предполагаю, что 20 лет назад в США было приемлемо делать 10-минутный перерыв на работе каждые 60-90 минут. Это не заняло много времени, но вы могли выйти на улицу и пообщаться. Сегодня большинство компаний не терпят перекуров. Сегодня от вас ожидается, что вы не будете курить. Если вы должны курить, то вы должны курить до/после работы или в обед. Или прокрасться, чтобы покурить в ванной. Я знаю несколько курильщиков, не большинство людей предпочитает не курить. Мой папа сказал мне, что эти перекуры были настоящей вещью. Каждая компания была абсолютно не против, если вы делали 5-8 перерывов в день, чтобы выйти на улицу, покурить и поболтать с другими курильщиками. Хотя мне это кажется довольно странным, когда я вижу здесь, во Франции.*
+
+## Unit 88. Местоимения: предлог OF между двумя местоимениями в английском.
+
+__All (все/всё), some (какое-то количество), any (какой-либо, никакой), most (большинство, большая часть), much/many (много), little/few (мало), no (не, нулевое количесвто).__
+
+All cars have wheels. *У всех машин есть колеса.*
+
+Some cars can go faster than others. *Некоторые автомобили могут ехать быстрее, чем другие.*
+
+No cars. *Никаких машин.*
+
+Many people drive too fast. *Многие люди ездят слишком быстро.*
+
+I don’t go out very often. I’m at home most days. *Я не выхожу очень часто. Я бываю дома большую часть дней.*
+
+Some people learn languages more easily than others (not some of people). *Некоторые люди изучают языки легче, чем другие.*
+
+Most tourists don’t visit this part of the town (not the most tourists). *Большинство туристов не посещают эту часть города.*
+
+All, some, any, most, much/many, little/few, half, none. 
+
+Some of the people, some of those people. *Некоторые люди, некоторые из тех людей.*
+
+Most of my time, most of the time. *Большую часть моего времени, большую часть времени.*
+
+Some of the people I work with are not very friendly. *Некоторые люди, с которыми я работаю, не очень дружелюбны.*
+
+None of this money is mine. *Ни одна из этих денег не моя.*
+
+Have you read any of these books? *Вы читали какую-нибудь из этих книг?*
+
+I was sick yesterday. I spent most of the day in bed. *Вчера я был болен. Я провел большую часть дня в постели.*
+
+All my friends live in Los Angeles. Or All of my friends. *Все мои друзья живут в Лос-Анджелесе.*
+
+Half this money is mine. Or Half of this money. *Половина этих денег моя.*
+ 
+All flowers are beautiful (= all flowers in general) *Все цветы прекрасны.*
+
+All (of) the flowers in this garden are beautiful (= a specific group of flowers) *Все цветы в этом саду прекрасны.*
+
+Most problems have a solution (= most problems in general). *Большинство проблем имеют решение.*
+
+We were able solve most of the problems we had (=a specific group of problems). *Мы смогли решить большинство проблем, которые у нас были.*
+
+How many of these people do you know? None of them/a few of them. *Сколько из этих людей вы знаете? Ни один из них / некоторые из них*
+
+Do any of you want to come to a party tonight? *Кто-нибудь из вас хочет прийти сегодня на вечеринку?*
+
+Do you like this music? Some of it. Not all of it. *Вам нравится эта музыка? Некоторые из них. Не все.*
+
+All of us were late. *Все мы опоздали.*
+
+I haven’t finished the book yet. I’ve only read half of it. *Я еще не закончил книгу. Я прочитал только половину.*
+
+Some cars have four doors and some have two. *У одних машин четыре двери, у других две.*
+
+A few of the shops were open, but most (of them) were closed. *Несколько магазинов были открыты, но большинство (из них) были закрыты.*
+
+Half this money is mine, and half (of it) is yours. *Половина этих денег моя, а половина (из них) твоя.*
+
+## Практика 88 ALL, MOST, SOME - количественные местоимения в английском
+
+Some of my friends are smokers, but not all of them. Some of them say they want to stop smoking. All of them agree that smoking is not good for their health. But most of them admit that smoking is something they do for joy and relaxation. So they are not ready to quit now.
+
+*Некоторые из моих друзей курят, но не все. Некоторые из них говорят, что хотят бросить курить. Все они согласны с тем, что курение вредно для здоровья. Но большинство из них признают, что курение — это то, что они делают для удовольствия и расслабления. Так что они не готовы уйти сейчас.*
+_____________
+Have you heard the news? CLAIRE NOT RETURNING TO AMERICA! That’s true. I have no intention to go back to the USA, at least for now. Something happened. Something’s broken inside of me. I need space, I need to be all alone. I know that I won’t have any of this space at home.
+
+I posted some of my new pics form Paris last night and then started scrolling my Instagram feed. Suddenly, I saw her, the blonde. In a picture with Jack, looking disgustingly happy together. I thought I was going to get sick. Then I wanted to slam my smartphone to the wall. But I don’t have any extra money to buy a new one, so I reasonable stopped my hand from any sudden moves. I took a deep breath. Then I came up to the window. Night Paris all around me was fantastic. I was looking out for a while, trying to gather my thoughts.
+
+Then I returned to my laptop and wrote to the radio station. I wrote that I had an emergency, so I needed to stay in Europe a little longer. I would send them all those photos and video footage from my trip. I would post a cool text about their radio station on my Instagram, Twitter, Facebook and YouTube. I also wrote that I would buy a ticket to the USA myself.
+
+I got their response a few hours ago. They say it’s not a problem. I can stay in Europe as long as I don’t demand their extra funding. What’s now? I have no idea. I just don’t want to go back.
+
+*Ты слышал новости? КЛЭР НЕ ВОЗВРАЩАЕТСЯ В АМЕРИКУ! Это правда. Я не собираюсь возвращаться в США, по крайней мере, пока. Что-то случилось. Что-то сломалось внутри меня. Мне нужно пространство, мне нужно побыть в полном одиночестве. Я знаю, что дома у меня не будет этого места.*
+
+*Прошлой ночью я опубликовал несколько своих новых фотографий из Парижа, а затем начал прокручивать ленту в Instagram. Внезапно я увидел ее, блондинку. На снимке с Джеком они выглядят омерзительно счастливыми вместе. Я думал, что заболею. Потом мне захотелось хлопнуть смартфоном об стену. Но у меня нет лишних денег, чтобы купить новый, поэтому я разумно остановил руку от любых резких движений. Я сделала глубокий вдох. Потом я подошел к окну. Ночной Париж вокруг меня был фантастическим. Некоторое время я смотрел, пытаясь собраться с мыслями.*
+
+*Потом я вернулся к ноутбуку и написал на радиостанцию. Я написал, что у меня чрезвычайная ситуация, поэтому мне нужно еще немного побыть в Европе. Я бы отправил им все эти фотографии и видеоматериалы из моей поездки. Я бы разместил классный текст об их радиостанции в своем Instagram, Twitter, Facebook и YouTube. Еще я написал, что сам куплю билет в США.*
+
+*Я получил их ответ несколько часов назад. Говорят, это не проблема. Я могу оставаться в Европе до тех пор, пока не потребую от них дополнительного финансирования. Что сейчас? Я понятия не имею. Я просто не хочу возвращаться.*
+
+## Unit 89 Местоимения BOTH / EITHER / NEITHER (оба / один из / ни один из)
+
+Both restaurants are very good. *Оба ресторана очень хороши.*
+
+Neither restaurant is expensive. *Оба ресторана не дорогие.*
+
+We can go to either restaurant. I don’t mind (either = one or the other, it doesn’t matter which one). *Мы можем пойти в любой ресторан. Я не против.*
+
+I couldn’t decide which of the two shirts to buy. I liked both. *Я не мог решить, какую из двух рубашек купить. Оба мне понравились.*
+
+Is your friend British or American? Neither. She’s Australian. *Ваш друг британец или американец? Ни то, ни это. Она австралийка.*
+
+Do you want tea or coffee? Either. I don’t mind. *Хочешь чай или кофе? И то, и это. Я не против.*
+
+Both of those restaurants are very good. *Оба этих ресторана очень хороши.*
+
+Neither of the restaurants we went to was (or were) expensive. *Ни один из ресторанов, в которые мы ходили, не был дорогим.*
+
+I haven’t been to either of those restaurants (= I haven’t been to one or the other). *Я не был ни в одном из этих ресторанов.*
+
+Both my parents are from Egypt. Or Both of my parents. *Оба моих родителя из Египта.*
+
+(talking to two people) Can either of you speak Russian? (обращаясь к двум людям) *Кто-нибудь из вас может говорить по-русски?*
+
+I asked two people the way to the station, nut neither of them could help me. *Я спросил двух человек, как пройти на станцию, но ни один из них не смог мне помочь.*
+
+Both of us were very tired. *Мы оба очень устали.*
+
+Neither of the children wants (or want) to go to bed. *Ни один из детей не хочет ложиться спать.*
+
+Both Chris and Paul were late. *И Крис, и Пол опоздали.*
+
+I was both tired and hungry when I arrives home. *Я был уставшим и голодным, когда пришел домой.*
+
+Neither Chris nor Paul come to the party. *Ни Крис, ни Пол не приходят на вечеринку.*
+
+There was an accident in the street where we live, but we neither saw nor heard anything. *На улице, где мы живем, произошел несчастный случай, но мы ничего не видели и не слышали.*
+
+I’m not sure where Maria’s from. She’s either Spanish or Italian. *Я не знаю, откуда Мария. Она либо испанка, либо итальянка.*
+
+Either you apologies, or I’ll never speak to you again. *Либо ты извиняешься, либо я больше никогда с тобой не разговариваю.*
+
+
+Either/neither/both (two things): | Any/none/all (more than two):
+---|---
+There are two good hotels here. You could stay at either of them. *Здесь есть два хороших отеля. Вы можете остановиться в любом из них.* | There are many good hotels here. You could stay at any of them. *Здесь много хороших отелей. Вы можете остановиться в любом из них.*
+We tried two hotels. *Мы попробовали два отеля.* | We tried a lot of hotels. *Мы перепробовали много отелей.*
+Neither of them had any rooms. Or Both of them were full. *Ни у кого из них не было комнат. Или они оба были полны.* | None of them had any rooms. All of them were full. *Ни у кого из них не было комнат. Все они были полны.*
+
+## Практика 89 Both, either, neither
+
+__*Местоимения both, either, neither всегда связаны с выбором из двух альтернатив:*__
+
+__Both__ – оба, и тот и другой
+
+__Either__ – либо один, либо другой (один из двух)
+
+__Neither__ – ни тот, ни другой (ни один из двух вариантов)
+
+__Neither + существительное__ – как единственное число
+
+__Both… and…__ - и тот, и другой
+
+__Neither… nor…__ - ни тот, ни другой (не то, не это)
+
+__Either… or…__ - либо то, либо это
+
+Andrew and John are brothers. Both brothers are married. Neither of them is divorced. Bothe have got children. Both like family picnics and going to the countryside. Every summer they either go hiking or go camping. They don’t like staying home. At the weekend they neither watch TV nor have parties. They prefer going out.
+
+*Эндрю и Джон — братья. Оба брата женаты. Ни один из них не разведен. У обоих есть дети. Оба любят семейные пикники и выезды на природу. Каждое лето они либо гуляют, либо отправляются в походы. Они не любят оставаться дома. В выходные они не смотрят телевизор и не устраивают вечеринки. Они предпочитают выходить на улицу.*
+
+## Unit 90 Местоимения ALL, WHOLE, EVERY.
+
+__All – *весь*, Every – *каждый*, Whole – *весь, целый, абсолютный, завершенный*__
+
+Everybody had a great time at the party (not all enjoyed). *Все отлично провели время на вечеринке*
+
+All of us had a great time at the party (not everybody of us). *Все мы прекрасно провели время на вечеринке*
+
+I’ll do all I can to help. Or I’ll do everything I can to help. *Я сделаю все, что в моих силах, чтобы помочь.*
+
+He thinks he knows everything (not he knows all). *Он думает, что знает все.*
+
+Our holiday was a disaster. Everything went wrong (not all went wrong). *Наш отпуск был катастрофой. Все пошло не так.*
+
+He knows all about computers. *Он знает все о компьютерах.*
+
+All I’ve eaten today is a sandwich (= the only thing I’ve eaten today). *Все, что я съел сегодня, это бутерброд.*
+
+Every seat in the theatre was taken. *Все места в театре были заняты.*
+
+Everybody has arrived (not have arrived). *Все прибыли*
+
+Everybody said they enjoyed themselves. *Все сказали, что получили удовольствие.*
+
+Did you read the whole book? (= all the book, not just a part of it). *Вы прочитали всю книгу?*
+
+Emily has lived her whole life in the same town. *Эмили всю свою жизнь прожила в одном городе.*
+
+I was so hungry, I ate a whole packet of biscuits (a complete packet). *Я был так голоден, что съел целую пачку печенья.*
+
+Her whole life. But. All her life. *Всю ее жизнь. Вся ее жизнь.*
+
+I’ve spent all the money you gave me. *Я потратил все деньги, которые вы мне дали.*
+
+When we were on holiday, we went to the beach every day. *Когда мы были в отпуске, мы каждый день ходили на пляж.*
+
+The bus service is excellent. There’s a bus every ten minutes. *Автобусы отлично ходят. Автобус ходит каждые десять минут.*
+
+We don’t see each other very often – about every six months. *Мы видимся не очень часто – примерно раз в полгода.*
+
+We spent all day/the whole day on the beach. *Мы провели весь день / весь день на пляже.*
+
+Dan was very quiet. He didn’t say a word all evening/the whole evening. *Дэн был очень тихим. Он не сказал ни слова весь вечер/весь вечер.*
+
+They never go out. They are at home all the time. *Они никогда не выходят. Они все время дома.*
+
+Every time I see you, you look different. *Каждый раз, когда я вижу тебя, ты выглядишь по-другому.*
+
+### Homework:
+
+All my friends were at the concert.
+
+Everybody works well in this company.
+
+All of us were very tired after the trip.
+
+John says that all he needs is a lot of money.
+
+Kate knows everything about Mary, because they are friends.
+
+That’s all I want to say.
+
+Every child needs love and care.
+
+Everyone said they liked the movie.
+
+He didn’t sleep the whole night.
+
+My grandpa said that all his life was hard.
+
+I study English every day.
+
+Stop being jealous! You needn’t phone me every 10 minutes. 
+
+We spent the whole day in the countryside on Sunday.
+
+He’s nervous all the time.
+
+I remember him every time I close my eyes.
+
+## Практика 90 ALL, WHOLE, EVERY - "Весь", "Целый", "каждый"
+
+Mike is a responsible man. Every morning he gets up at 6:30 to get to work in time. He tries to be nice with everybody, even if he doesn’t like the person much. All co-workers respect Mike. Everyone can rely on Mike. Mike is busy the whole day, so he is sometimes exhausted in the evening. No matter how tired he is, Mike plays games with his little son every evening.
+
+*Майк ответственный человек. Каждое утро он встает в 6:30, чтобы успеть на работу. Он старается быть милым со всеми, даже если этот человек ему не очень нравится. Все коллеги уважают Майка. Каждый может положиться на Майка. Майк занят весь день, поэтому к вечеру он иногда выматывается. Как бы он ни устал, Майк каждый вечер играет в игры со своим маленьким сыном.*
+__________
+Every American can stay in the Schengen Area for a maximum of 90 days without a visa, so I must to leave Europe by the New Year. My plan is to meet Thanksgiving, buy a ticket home by Black Friday and hope that I will come to peace with my feelings. Travel medical insurance isn’t required for US citizens who don’t need a visa. Considering my poor financial condition, I decided to buy travel insurance later.
+
+I know it’s bad planning. All right, this whole thing is a shitty plan. But it’s better than nothing. I have neither wish, nor time to plan every single detail.
+
+First, I was thinking about going to Venice in Italy. But I googled that it’s too touristy.
+
+I didn’t want to go to Poland, don’t know why. I just don’t feel like going to Slavic countries. I don’t want to go to the UK, cause they all are snobs there. Sorry, guys, but that’s true. I don’t want to go the Germany, though it’s good for me to practice German speaking.
+
+Suddenly I remembered my cousins’ email about Austria and Vienna. Every local speaks German there. The architecture is great. The city is slow, comfortable and safe. And it’s right in the center of western Europe. Austria partially helped me to win my trip. To sum up, I see the only solution to the problem – I’m going to Vienna.
+
+*Каждый американец может находиться в Шенгенской зоне без визы максимум 90 дней, поэтому я должен покинуть Европу к Новому году. Мой план — встретить День Благодарения, купить билет домой к Черной пятнице и надеяться, что я смирюсь со своими чувствами. Туристическая медицинская страховка не требуется для граждан США, которым не нужна виза. Учитывая мое плохое финансовое положение, я решил позже купить туристическую страховку.*
+
+*Я знаю, что это плохое планирование. Ладно, все это дерьмовый план. Но это лучше, чем ничего. У меня нет ни желания, ни времени планировать каждую деталь.*
+
+*Сначала я думал о поездке в Венецию в Италию. Но я погуглил, что это слишком туристично.*
+
+*Я не хотел ехать в Польшу, не знаю почему. Мне просто не хочется ехать в славянские страны. Я не хочу ехать в Великобританию, потому что там все снобы. Извините, ребята, но это правда. Я не хочу ехать в Германию, хотя мне полезно практиковать немецкий язык.*
+
+*Внезапно я вспомнил электронное письмо моих двоюродных братьев об Австрии и Вене. Там каждый местный говорит по-немецки. Архитектура великолепна. Город медленный, удобный и безопасный. И это прямо в центре Западной Европы. Австрия частично помогла мне выиграть поездку. Подводя итог, я вижу единственное решение проблемы – еду в Вену.*
 
