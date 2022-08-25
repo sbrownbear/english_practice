@@ -48,7 +48,7 @@ Each of Joanne Rowling books is a bestseller. *Каждая из книг Джо
 
 Everyone enjoyed the play. *Каждому понравился спектакль.*
 
-## Практика 91 EACH и EVERY - разница.
+## Практика 91. EACH и EVERY - разница.
 
 *Слова each и every (каждый всякий) близки по значению и часто взаимозаменяемы. Но между этими местоимениями есть определенные смысловые отличия.*
 
@@ -147,3 +147,61 @@ I soon got contacted by a homeowner. A couple of seniors were going on a cruise.
 *Домашняя няня остается в доме этого человека и заботится об его домашних животных и имуществе, пока он отсутствует. Обычно деньги не обмениваются между сторонами. У меня огромный опыт ухода за кошкой миссис Адам. Ну, я решил попытать счастья. Тем более, учитывая тот факт, что у меня очень мало денег. Я выбрал место (Вена), дату (через 2 дня) и тип питомца (кошки).*
 
 *Вскоре со мной связался домовладелец. Пара пенсионеров собиралась в круиз. Женщине, которая должна была ухаживать за их кошками, пришлось лечь в больницу. Им срочно нужен был кто-то. Я сказал им, что могу прийти на следующий день и остаться в их доме на два месяца. Им нужен был кто-то, кто присматривал за их кошками всего 3 недели. Лучше бы ничего, поэтому я согласился. Думаю, я еду в Вену.*
+
+## Unit 93. Relative clauses: когда можно убрать who, that, which (урок 2).
+
+The woman who/that lives next door is a doctor. *Женщина, которая живет по соседству, — врач.*
+
+Where is the cheese that/which was in the fridge? *Где сыр, который был в холодильнике?*
+
+The woman (who) I wanted to see was away on holiday. *Женщина, которую я хотел увидеть, уехала в отпуск.*
+
+Have you found the keys (that) you lost? *Вы нашли ключи, которые вы потеряли?*
+
+The dress (that) Lisa bought doesn’t fit her very well. *Платье, которое купила Лиза, ей не очень подходит.*
+
+Is there anything (that) I can do? *Есть ли что-нибудь что я могу сделать?*
+
+The keys you lost (not the keys you lost them). *Ключи, которые вы потеряли.*
+
+The dress Lisa bought (not the dress Lisa bought it). *Платье, которое купила Лиза.*
+
+Tom is talking to a woman – do you know her? *Том разговаривает с женщиной — вы ее знаете?*
+
+Do you know the woman (who/that) Tom is talking to? *Вы знаете, женщину с которой разговаривает Том?*
+
+I slept in a bed last night – it wasn’t very comfortable. *Я спал в кровати прошлой ночью - это было не очень удобно.*
+
+The bed (that/which) I slept in last night wasn’t very comfortable. *Кровать, на которой я спала прошлой ночью, была не очень удобной.*
+
+Are these books (that/which) you were looking for? *Эти книги, которые вы искали?*
+
+The woman (who/that) he fell in love with left him after a month. *Женщина, в которую он влюбился, ушла от него через месяц.*
+
+The man (who/that) I was sitting next to on the plane talked all the time. *Человек, рядом с которым я сидел в самолете, все время говорил.*
+
+The books you were looking for (not the books you were looking for them). *Книги, которые вы искали.*
+
+Everything (that) they said was true (not Everything what they said). *Все, что они сказали, было правдой.*
+
+I gave her all the money (that) I had (not all the money what I had). *Я отдал ей все деньги, которые у меня были.*
+
+Did you hear what they said? (= the things that they said). *Вы слышали, что они сказали?*
+
+## Практика 93. Убираем WHO, WHICH, THAT - Relative clauses (урок 2).
+
+My friend who I haven’t seen for many years is finally in town. We’ve been friends since our childhood. Some years ago he got a well-paid job that was in Dubai. He had to move to another country. It was hard but it was also a challenge and new experience, which he was looking for. Video calls we exchange every week help us stay in touch. In a couple of hours, I’m going to meet him at the airport.
+
+*Мой друг, которого я не видел много лет, наконец-то в городе. Мы дружим с детства. Несколько лет назад он получил хорошо оплачиваемую работу в Дубае. Ему пришлось переехать в другую страну. Это было тяжело, но это был и вызов, и новый опыт, который он искал. Видеозвонки, которыми мы обмениваемся каждую неделю, помогают нам оставаться на связи. Через пару часов я встречу его в аэропорту.*
+____________
+I wanted to get out of Paris as quickly as possible. I went online to book a ticket. Unfortunately, I could get only the train ticket with 3 changes. Of course, it was Standard, not 1st Class. I paid 183 euros for a one-way ticket that was the cheapest one I could find. I also had to pay extra 3.50 euros for seat reservation. I remember my cousins’ story that happened to them once. They had to miss the train because they didn’t pay for reservation. All seats were taken, so they had to wait for the next train that arrived in three hours. I didn’t want to take my chances.
+
+It’s going to be a long way continuing overnight. The good news is that I’m going to be in Vienna the next morning. Goodbye, the gorgeous Eiffel Tower. Maybe, I’ll see you again someday somehow.
+
+I purchased my ticket online, then packed my bag and checked out. I made my way to the railway station. I found the schedule and spotted my train. I reached the platform. Soon the train I was expecting arrived at the platform. I found my place and settled down.
+
+*Я хотел уехать из Парижа как можно быстрее. Я пошел онлайн, чтобы забронировать билет. К сожалению, я смог получить только билет на поезд с 3 пересадками. Конечно, это был Стандарт, а не 1-й класс. Я заплатил 183 евро за билет в один конец, который был самым дешевым, который я смог найти. Мне также пришлось доплатить 3,50 евро за бронирование места. Я помню историю моих двоюродных братьев, которая однажды произошла с ними. Им пришлось опоздать на поезд, потому что они не заплатили за бронирование. Все места были заняты, поэтому им пришлось ждать следующего поезда, прибывшего через три часа. Я не хотел рисковать.*
+
+*Это будет долгий путь, продолжающийся всю ночь. Хорошая новость в том, что на следующее утро я буду в Вене. До свидания, великолепная Эйфелева башня. Может быть, я увижу тебя снова как-нибудь.*
+
+*Я купил билет онлайн, затем собрал сумку и выехал. Я направился к железнодорожной станции. Я нашел расписание и увидел свой поезд. Я добрался до платформы. Вскоре на перрон прибыл ожидаемый мною поезд. Я нашел свое место и успокоился.*
