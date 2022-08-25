@@ -166,13 +166,10 @@ The keys you lost (not the keys you lost them). *Ключи, которые вы
 
 The dress Lisa bought (not the dress Lisa bought it). *Платье, которое купила Лиза.*
 
-Tom is talking to a woman – do you know her? *Том разговаривает с женщиной — вы ее знаете?*
-
-Do you know the woman (who/that) Tom is talking to? *Вы знаете, женщину с которой разговаривает Том?*
-
-I slept in a bed last night – it wasn’t very comfortable. *Я спал в кровати прошлой ночью - это было не очень удобно.*
-
-The bed (that/which) I slept in last night wasn’t very comfortable. *Кровать, на которой я спала прошлой ночью, была не очень удобной.*
+Without who/that/which | With who/that/which
+---|---
+Tom is talking to a woman – do you know her? *Том разговаривает с женщиной — вы ее знаете?* | Do you know the woman (who/that) Tom is talking to? *Вы знаете, женщину с которой разговаривает Том?*
+I slept in a bed last night – it wasn’t very comfortable. *Я спал в кровати прошлой ночью - это было не очень удобно.* | The bed (that/which) I slept in last night wasn’t very comfortable. *Кровать, на которой я спала прошлой ночью, была не очень удобной.*
 
 Are these books (that/which) you were looking for? *Эти книги, которые вы искали?*
 
