@@ -202,3 +202,293 @@ I purchased my ticket online, then packed my bag and checked out. I made my way 
 *Это будет долгий путь, продолжающийся всю ночь. Хорошая новость в том, что на следующее утро я буду в Вене. До свидания, великолепная Эйфелева башня. Может быть, я увижу тебя снова как-нибудь.*
 
 *Я купил билет онлайн, затем собрал сумку и выехал. Я направился к железнодорожной станции. Я нашел расписание и увидел свой поезд. Я добрался до платформы. Вскоре на перрон прибыл ожидаемый мною поезд. Я нашел свое место и успокоился.*
+
+## Unit 94. Relative clauses с WHOSE, WHOM, WHERE. Придаточные предложения в английском.
+
+__Whose – чей (заменяет his/her/their в дополнении). Используем для людей__
+
+__Whom – который, которого, которому. Формальный вариант слова who__
+
+__Where – где, куда, откуда__
+
+We helped some people – their car had broken down. *Некоторым мы помогли - у них сломалась машина.*
+
+We helped some people whose car had broken down. *Мы помогли некоторым людям, у которых сломалась машина.*
+
+
+A widow is a woman whose husband is dead. *Вдова – это женщина, у которой умер муж.*
+
+What’s the name of the man whose car you borrowed? *Как зовут человека, чью машину ты одолжил?*
+
+I met someone whose brother I went to school with. *Я встретил человека, с братом которого я ходил в школу.*
+
+I met a man who knows you. *Я встретил человека, который тебя знает.*
+
+I met a man whose sister knows you. *Я встретил человека, чья сестра знает тебя.*
+
+George is a person (whom) I admire very much. *Джордж - человек, которым я очень восхищаюсь.*
+
+I like the people with whom I work (= I like the people I work with). *Мне нравятся люди, с которыми я работаю.*
+
+A person who/that I admire a lot. Or. A person I admire a lot. *Человек, которым я очень восхищаюсь.*
+
+The people who/that I work with. Or. The people I work with. *Люди, с которыми я работаю.*
+
+The restaurant – we had lunch there – it was near the airport. *Ресторан — мы там обедали — он был рядом с аэропортом.*
+
+The restaurant where we had lunch was near the airport. *Ресторан, в котором мы обедали, находился недалеко от аэропорта.*
+
+I recently went back to the town (where/that) I grew up (in). *Недавно я вернулся в город, в котором я вырос.*
+
+I would like to live in a place where there is plenty of sunshine. *Я хотел бы жить в месте, где много солнечного света.*
+
+I can’t meet you on Friday. That’s the day (that) I’m going away. *Я не могу встретиться с тобой в пятницу. Это день, когда я ухожу.*
+
+The last time (that) I saw Anna, she looked great. *В последний раз, когда я видел Анну, она выглядела великолепно.*
+
+I haven’t seen Jack and Helen since the year (that) they got married. *Я не видел Джека и Хелен с того года, когда они поженились.*
+
+The reason (why) I’m phoning is to ask your advice. *Причина, почему я звоню, чтобы спросить вашего совета.*
+
+## Практика 94. Relative Clause, урок 3: WHOSE, WHOM, WHERE.
+
+Yesterday I was in a shop where I sometimes buy groceries. There was a woman in front of me whose face was familiar. It might have been a woman with whom I used to study at school because I remember her face when it was younger. I said hello and introduced myself asking if she remembered me. Aren’t you that nasty Harry who gave me so much trouble at school? – she asked me back. I said, I guess that’s me. I smiled in an apologetic way and asked her out for coffee. I guess I am not so nasty now as she agreed.
+
+Вчера я был в магазине, где иногда покупаю продукты. Передо мной стояла женщина, лицо которой было мне знакомо. Возможно, это была женщина, с которой я учился в школе, потому что я помню ее лицо, когда оно было моложе. Я поздоровался и представился, спросив, помнит ли она меня. Не ты ли тот противный Гарри, который доставлял мне столько хлопот в школе? – спросила она меня в ответ. Я сказал, наверное, это я. Я улыбнулась извиняющимся тоном и пригласила ее на кофе. Наверное, я не такой противный сейчас, так как она согласилась.
+
+I’m on a train now. There is a long way through the night ahead of me. The seat is good but not too comfortable for sleeping. The carriage where I am sitting and writing these notes starts moving slowly, then faster and faster. I’m going to the unknown place. I’m running away.
+
+I’m looking out the window and see the road lights beaming. I hardly keep my eyes open but I can’t sleep. I’m tired, but not physically. I’m tired of my meaningless life, of loneliness, of grey days. There is no one expecting me in Vienna. But is there anyone expecting me at home? My parents think that I’m a good-for-nothing.
+Sarah doesn’t give a damn about my love troubles, she never even asks me about that. Jack is holding someone else in his arms. The train is gliding on a rail. With the corner of my eyes, I see strangers whose shadows are moving up and down the carriage. A guy next to me at whom I glance from time to time is already snoring, a lucky guy. And I’m not lucky, I’m a loser. I’m completely lost. My heart is torn apart, and nobody cares. Perhaps, only my grandma whose tender hands I miss so much cares about me. But even she can’t comprehend. No one can.
+
+PS My journal is officially not public anymore. I can’t post my personal life so that everyone could read it.
+
+*Я сейчас в поезде. Впереди долгий путь сквозь ночь. Сиденье хорошее, но не слишком удобное для сна. Карета, в которой я сижу и пишу эти заметки, начинает двигаться медленно, потом все быстрее и быстрее. Я иду в неизвестное место. Я убегаю.*
+
+*Я смотрю в окно и вижу, как сияют дорожные огни. Я едва держу глаза открытыми, но не могу уснуть. Я устал, но не физически. Я устал от своей бессмысленной жизни, от одиночества, от серых дней. В Вене меня никто не ждет. Но меня кто-нибудь ждет дома? Мои родители думают, что я ни на что не годен.*
+
+*Саре наплевать на мои любовные проблемы, она даже никогда не спрашивает меня об этом. Джек держит кого-то еще на руках. Поезд скользит по рельсу. Краем глаза я вижу незнакомцев, чьи тени двигаются вверх и вниз по вагону. Парень рядом со мной, на которого я время от времени поглядываю, уже храпит, счастливчик. А мне не повезло, я неудачник. Я полностью потерян. Мое сердце разрывается, и никому нет дела. Пожалуй, только моя бабушка, по чьим нежным рукам я так скучаю, заботится обо мне. Но даже она не может понять. Никто не может.*
+
+*PS Мой журнал официально больше не является публичным. Я не могу выкладывать свою личную жизнь так, чтобы все могли ее прочитать.*
+
+
+## Unit 95 Relative Clauses: extra information, часть 1 (урок 4)
+
+Type 1 | Type 2
+---|---
+The woman who lives next door is a doctor. | My brother Ben, who lives in Hong Kong, is an architect.
+Grace works for a company that makes furniture. | Anna told me about her new job, which she’s enjoying a lot.
+We stayed at the hotel (that) you recommended. | We stayed at the Park Hotel, which a friend of outs recommended.
+We know a lot of people who live in London. | - 
+*Женщина, которая живет по соседству, — врач.* | *Мой брат Бен, живущий в Гонконге, — архитектор.*
+*Грейс работает в компании по производству мебели.* | *Анна рассказала мне о своей новой работе, которая ей очень нравится.*
+*Мы остановились в отеле (который) вы рекомендовали.* | *Мы остановились в отеле «Парк», который нам порекомендовал наш друг.*
+*Мы знаем многих людей, живущих в Лондоне.* | -
+My sister who is from Paris visited us last month. | My sister, who is from Paris, visited us last month.
+*Та моя сестра, что из Парижа, приезжала к нам в прошлом месяце* | *Моя сестра, живущая в Париже, приехала к нам в прошлом месяце*
+
+You can use that | You cannot use that
+---|---
+Do you know anyone who/that speaks French and Italian? | John, who (not that) speaks French and Italian, works as a tour guide.
+Grace works for a company which/that makes furniture. | Anna told me about her new job, which (not that) she’s enjoying a lot.
+
+## Unit 97 Придаточные предложения: -ing и -ed clauses. Причастный оборот (ing-clause)
+
+Do you know the woman __talking to Tom__? (действительное причастие)
+
+The boy __injured in the accident__ was taken to hospital (страдательное причастие)
+
+*Вы знаете, женщину, разговаривающую с Томом? Пострадавший в ДТП мальчик госпитализирован*
+
+Police __investigating the crime__ are looking for three men (police are investigating the crime). *Полиция, расследующая преступление, ищет троих мужчин.*
+
+Who were those people __waiting outside__? (they were waiting). *Кто были те люди, которые ждали снаружи?*
+
+I was woken up by a bell __ringing__ (a bell was ringing). *Меня разбудил звонок.*
+
+The road __connecting the two villages__ is very narrow (the road connects the two villages). *Дорога, соединяющая две деревни, очень узкая.*
+
+I have a large room __overlooking the garden__ (the room overlooks the garden). *У меня большая комната с видом на сад.*
+
+Can you think of the name of a flower __beginning with T__? (the name begins with T). *Можете ли вы придумать название цветка, начинающегося с буквы Т?*
+
+George showed me some pictures __painted by his father__ (they __had been painted__ by his father). *Джордж показал мне несколько картин, написанных его отцом.*
+
+The police never found the money __stolen in the robbery__. *Полиция так и не нашла деньги, украденные при ограблении.*
+
+Most of the goods __made in this factory__ are exported. *Большая часть товаров, произведенных на этом заводе, идет на экспорт.*
+
+We’ve eaten nearly all the chocolates. There are only a few __left__. *Мы съели почти все конфеты. Осталось всего несколько.*
+
+__There were__ some children __swimming__ in the river. *В реке купались дети.*
+
+__Is there__ anybody __waiting__? *Кто-нибудь ждет?*
+
+__There was__ a big red car __parked__ outside the house. *Возле дома была припаркована большая красная машина.*
+
+## Unit 98 Прилагательные на -ing и -ed в английском. Смысловые отличия
+
+__ed - описывает чувство, ing - описывает характеристику__
+
+Jane has been doing the same job for a very long time. Every day she does exactly the same thing again and again. She doesn’t enjoy her job anymore and would like to do something different.
+
+*Джейн занимается одной и той же работой в течение очень долгого времени. Каждый день она снова и снова делает одно и то же. Ей больше не нравится ее работа, и она хотела бы заниматься чем-то другим.*
+
+Jane’s job is __boring__. *Работа Джейн скучна.*
+
+Jane is __bored__ (with her job). *Джейн скучно.*
+
+Jane is __bored__ because her job is __boring__. *Джейн скучно, потому что ее работа скучна.*
+
+Jane’s job is __boring__, so Jane is __bored__ (not Jane is boring). *Работа Джейн скучная, поэтому Джейн скучно.*
+
+George always talks about the same things. He’s really __boring__. *Джордж всегда говорит об одном и том же. Он действительно скучный.*
+
+-ing | -ed
+---|---
+My job is __boring__ | I’m __bored__ with my job
+My job is __interesting__ | I’m not __interested__ in my job any more
+My job is __tiring__ | I get very __tired__ doing my job
+My job is __satisfying__ | I’m not __satisfied__ with my job
+My job is __depressing__ | My job makes me __depressed__
+*Моя работа скучная, интересная, утомительна, удовлетворяет, угнетает* | *Мне скучно на моей работе. Меня больше не интересует моя работа. Я очень устаю от своей работы. Я не доволен своей работой. Моя работа вызывает у меня депрессию.*
+
+__Interesting__ – *интересный*, __interested__ - *интересоваться*, __surprising__ - *удивительный*, __surprised__ - *удивленный*, __disappointing__, __disappointed__ - *расстроенный*, __shocking__, __shocked__ - *шокирован*.
+-ing | -ed
+---|---
+Julia thinks politics is __interesting__. | Julia is __interested__ in politics
+Did you meet anyone __interesting__ at the party? | Are you __interested__ in buying a car? I’m trying to sell mine
+It was __surprising__ that he passed the exam. | Everybody was __surprised__ that he passed the exam
+The movie was __disappointing__. We expected it to be much better. | We were __disappointed__ with the movie. We expected it to be much better
+The news was __shocking__. | I was __shocked__ when I heard the news
+*Джулия думает, что политика интересна* | *Юля интересуется политикой*
+*Вы встретили кого-нибудь интересного на вечеринке?* | *Вы заинтересованы в покупке автомобиля? я пытаюсь продать свою*
+*Удивительно, что он сдал экзамен* | *Все были удивлены, что он сдал экзамен*
+*Фильм разочаровал. Мы ожидали, что будет намного лучше* | *Мы были разочарованы фильмом. Мы ожидали, что будет намного лучше.*
+*Новость была шокирующей* | *Я был потрясен, когда услышал эту новость.*
+
+## Unit 99 Порядок прилагательных в английском. Adjective word order
+
+My brother lives in a nice new house. *Мой брат живет в хорошем новом доме*
+
+In the kitchen there was a beautiful large round wooden table. *На кухне стоял красивый большой круглый деревянный стол*
+
+- | opinion | fact | -
+---|---|---|---
+A | Nice *Хороший* | Long *Длинная* | Summer holiday *Летний отдых*
+An | Interesting *Интересно* | Young *Молодой* | Man *Мужчина*
+-- | Delicious *Вкусный* | Hot *Горячий* | Vegetable soup *Овощной суп*
+a |	Beautiful *Красивая* | Large round wooden *Большой круглый деревянный* | Table *Стол*
+
+1 | 2 | 3 | 4 | 5
+---|---|---|---|---
+How big? | How old? | What color? | Where from? | What is it made of?
+
+A __tall young__ man (1-2) *Высокий молодой человек*
+
+__Big blue__ eyes (1-3) *Большие голубые глаза*
+
+A __small black plastic__ bag (1-3-5) *Небольшой черный полиэтиленовый пакет*
+
+A __large wooden__ table (1-5) *Большой деревянный стол*
+
+An __old Russian__ song (2-4) *Старинная русская песня*
+
+An __old white cotton__ shirt (2-3-5) *Старая белая хлопчатобумажная рубашка*
+
+A __large round__ table; a __tall thin__ girl; a __long narrow__ street. *Большой круглый стол; высокая худая девушка; длинная узкая улица.*
+
+A __black and white__ dress; a __red white and green__ flag. *Черно-белое платье; красно-бело-зеленый флаг.*
+
+A __long black__ dress (not a long and black dress). *Длинное черное платье (не длинное и черное платье).*
+
+
+__Be careful__! *Будь осторожен!*
+
+__I’m tired__ and __I’m getting hungry__. *Я устал и проголодался.*
+
+As the film went on, it __become__ more and more __boring__. *По ходу фильма он становился все более и более скучным.*
+
+Your friend __seems__ very __nice__. *Ваш друг кажется очень милым.*
+
+You __look tired__ / I __feel tired__ / She __sounds tired__. *Ты выглядишь усталым / Я чувствую усталость / Она кажется усталой*
+
+The dinner __smells good__. *Ужин хорошо пахнет*
+
+This tea __tastes__ a bit __strange__. *У этого чая немного странный вкус.*
+
+Drive __carefully__. (not drive careful) *Ведите осторожно.*
+
+Susan plays the piano very __well__. (not plays … very good) *Сьюзан очень хорошо играет на пианино.*
+
+The __first two__ days / the __next few__ weeks / the __last ten__ minutes. *Первые два дня/следующие несколько недель/последние десять минут*
+
+I didn’t enjoy the __first two__ days of the course (not the two first days). *Мне не понравились первые два дня курса*
+
+They’ll be away for the __next few__ weeks (not the few next weeks). *Они будут отсутствовать в течение следующих нескольких недель*
+
+## Unit 100 Наречия (adjectives) на -ly, порядок слов в английском предложении
+
+Our holiday was too short – the time passed very __quickly__.
+
+Two people were __seriously__ injured in the accident.
+
+*Наш отпуск был слишком коротким - время пролетело очень быстро.*
+
+*В аварии серьезно пострадали два человека.*
+
+Adjective *прилагательное* | Adverb *наречие*
+---|---
+Quick *Быстрый* | Quickly *Быстро* 
+Serious *Серьезный* | Seriously *Серьезно* 
+Careful *Осторожный (аккуратный)* | Carefully *Осторожно (аккуратно)*
+Quiet *Тихий* | Quietly *Тихо*
+Heavy *Тяжелый (сильный)* | Heavily *Тяжело (сильно)*
+Bad Плохой	Quickly *Быстро* | Badly *Плохо*
+
+Some adjectives end in –ly: __friendly, lively, elderly, lonely, silly, lovely__
+*Некоторые прилагательные оканчиваются на –ly: дружелюбный, живой, пожилой, одинокий, глупый, милый.*
+
+Adjective *прилагательное* | Adverb *наречие*
+---|---
+Sam is a __careful driver__ (not a carefully driver) *Сэм аккуратный водитель* | Sam __drove carefully__ along the narrow road (not drove careful). *Сэм ехал осторожно по узкой дороге*
+We didn’t go out because of the __heavy rain__ *Мы не вышли из-за сильного дождя*| We didn’t go out because it was __raining heavily__ (not raining heavy). *Мы не вышли, потому что шел сильный дождь*
+
+Use adjectives after some verbs: __be, look, feel, sound__ etc.
+
+*Используйте прилагательные после некоторых глаголов: быть, смотреть, чувствовать, звучать и т. д.*
+
+Adjective *прилагательное* | Adverb *наречие*
+---|---
+She speaks __perfect English__ | She __speaks English perfectly__
+Please __be quiet__ | Please __speak quietly__
+I was disappointed that my exam results __were__ so __bad__ | I was unhappy that I __did__ so __badly__ in the exam
+Why do you always __look__ so __serious__? | Why do you never __take__ me __seriously__?
+I __feel happy__ | The children were __playing happily__.
+*Она прекрасно говорит по-английски* | *Она прекрасно говорит по-английски*
+*Пожалуйста, соблюдайте тишину* | *Пожалуйста, говорите тише.*
+*Я был разочарован тем, что мои результаты экзамена были такими плохими* | *Я был недоволен тем, что так плохо сдал экзамен.*
+*Почему ты всегда выглядишь таким серьезным?* | *Почему ты никогда не воспринимаешь меня всерьез?*
+*Я счастлив* | *Дети весело играли.*
+
+__Reasonably__ cheap (adverb + adjective) *Достаточно (умеренно) дешево*
+
+__Terribly__ sorry (adverb + adjective) *Очень жаль (ужасно виноватый)*
+
+__Incredibly__ quickly (adverb + adverb) *Невероятно (удивительно) быстро*
+
+It’s a __reasonably cheap__ restaurant and the food is __extremely good__. *Это довольно дешевый ресторан, а еда очень вкусная.*
+
+I’m __terribly sorry__. I didn’t mean to push you. *Мне ужасно жаль. Я не хотел давить на тебя.*
+
+Maria learns languages __incredibly quickly__. *Мария невероятно быстро учит языки.*
+
+The exam was __surprisingly easy__. *Экзамен прошел на удивление легко.*
+
+You can also use an adverb before a past participle. *Вы также можете использовать наречие перед причастием прошедшего времени.*
+
+Two people were __seriously injured__ in the accident. *В аварии серьезно пострадали два человека.*
+
+The meeting was __badly organized__. *Встреча была плохо организована.*
+
+
