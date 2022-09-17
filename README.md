@@ -8,7 +8,7 @@
 
 - [British Council](https://learnenglishteens.britishcouncil.org/)
 
-## Синий Murphy (уровень B1 - B2) - Английский язык для среднего уровня. English Grammar in Use. [YouTube-канал Елены Вогнистой](https://www.youtube.com/playlist?list=PLYB0SmefqEsk6b6PRR8mai1oetrWyH7j-).
+## English Grammar in Use. Синий Murphy (уровень B1 - B2). [YouTube-канал Елены Вогнистой](https://www.youtube.com/playlist?list=PLYB0SmefqEsk6b6PRR8mai1oetrWyH7j-).
 
 `English_gramma_in_use_1-10.md` - уроки и практика с 1 по 10 (Present Simple, Present Continuous; Past Simple, Past Continuous; Present Perfect и Present Perfect Continuous)
 
