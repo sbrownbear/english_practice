@@ -1,5 +1,7 @@
 ## Полезные курсы, ссылки и материалы, которыми я пользуюсь:
 
+- [English Galaxy](https://apps.apple.com/ru/app/eg-%D0%B0%D0%BD%D0%B3%D0%BB%D0%B8%D0%B9%D1%81%D0%BA%D0%B8%D0%B9-%D1%8F%D0%B7%D1%8B%D0%BA-%D1%83%D1%87%D0%B8%D0%BC-%D1%81%D0%BB%D0%BE%D0%B2%D0%B0/id1531458404)
+
 - [theschooloflife](https://www.theschooloflife.com/)
 
 - [YouTube канал "OK English"](https://www.youtube.com/c/Ok-englishRu)
