@@ -266,7 +266,274 @@ It’s a long walk from here to the park – __further__ than I thought. *Отс
 
 Let me know if you hear any __further__ news. *Дайте мне знать, если вы услышите какие-либо дальнейшие новости.*
 
+## Unit 106 Сравнение прилагательных в английском (урок 2) Разные способы. Comparative adjectives
 
+Much, a lot, far (a lot), a bit, a little, slightly (a little)
+
+Let’s go by car. It’s much cheaper. *Поедем на машине. Это намного дешевле.*
+
+How do you feel now? Much better, thanks. *Как ты себя сейчас чувствуешь? Намного лучше, спасибо.*
+
+Don’t go by train. It’s a lot more expensive. *Не езжай поездом. Это намного дороже.*
+
+Could you speak a bit more slowly? *Не могли бы вы говорить немного медленнее?*
+
+This bag is slightly heavier than the other one. *Эта сумка немного тяжелее предыдущей.*
+
+Her illness was far more serious than we thought at first. *Ее болезнь оказалась гораздо серьезнее, чем мы думали сначала.*
+_________________
+__Any longer / no bigger__
+
+I’ve waited long enough. I’m not waiting any longer. *Я ждал достаточно долго. Я не буду больше ждать.*
+
+We expected their apartment to be very big, but it’s no bigger than ours. Or it isn’t any bigger than ours. *Мы ожидали, что их квартира будет очень большой, но она не больше нашей.*
+
+How do you feel now? Do you feel any better? *Как ты себя сейчас чувствуешь? Вы чувствуете себя лучше?*
+
+This hotel is better than the other one, and it’s no more expensive. *Этот отель лучше другого и не дороже.*
+_________________
+__Better and better / more and more__
+
+Your English is improving. It’s getting better and better. *Ваш английский улучшается. Становится все лучше и лучше.*
+
+The city has grown fast in recent years. It’s got bigger and bigger. *В последние годы город быстро вырос. Он стал больше.*
+
+As I listened to his story, I became more and more convinced that he was lying. *Слушая его рассказ, я все больше и больше убеждался, что он лжет.*
+
+These days more and more people are learning English. *В наши дни все больше и больше людей изучают английский язык.*
+_____________
+__The … the better__
+
+What time shall we leave? The sooner the better. *Во сколько мы выйдем? Чем скорее, тем лучше.*
+
+What sort of box do you want? A big one? – Yes, the bigger the better (as big as possible). *Какую коробку вы хотите? Та большая? – Да, чем больше, тем лучше.*
+
+When you’re travelling, the less luggage you have the better. *Когда вы путешествуете, чем меньше у вас багажа, тем лучше.*
+_______________
+__The … the …__
+
+The warmer the weather, the better I feel. *Чем теплее погода, тем лучше я себя чувствую.*
+
+The sooner we leave, the earlier we will arrive. *Чем раньше мы уйдем, тем раньше мы приедем.*
+
+The younger you are, the easier it is to learn. *Чем ты моложе, тем легче тебе учиться.*
+
+The more expensive the hotel, the better the service. *Чем дороже отель, тем лучше обслуживание.*
+
+The more electricity you use, the higher your bill will be. *Чем больше электроэнергии вы используете, тем выше будет ваш счет.*
+
+The more I thought about the plan, the less I liked it. *Чем больше я думал об этом плане, тем меньше он мне нравился.*
+
+__Older and elder – страрше__
+
+David looks older than he really is. *Дэвид выглядит старше, чем он есть на самом деле.*
+
+My elder sister is a TV producer. *Моя старшая сестра — телепродюсер.*
+
+My sister is older than me. *Моя сестра старше меня.*
+
+## Unit 107 Сравнение прилагательных с помощью as … as и than (урок 3)
+
+Sarah, Joe and David are all very rich. Sarah had 20 million, Joe has 15 million and David has 10 million. So: Joe is rich. He is richer than David. But he isn’t as rich as Sarah (Sarah is richer than he is).
+*Сара, Джо и Дэвид очень богаты. У Сары было 20 миллионов, у Джо — 15 миллионов, а у Дэвида — 10 миллионов. Итак, Джо богат. Он богаче Давида. Но он не так богат, как Сара (Сара богаче его).*
+_______________
+Jack isn’t as old as he looks. *Джек не так стар, как выглядит.*
+
+The town center wasn’t as crowded as usual. *В центре города было не так многолюдно, как обычно.*
+
+Lisa didn’t do as well in the exam as she had hoped. *Лиза не так хорошо сдала экзамен, как надеялась.*
+
+The weather is better today. It’s not as cold. *Сегодня погода лучше. Не так холодно.*
+
+I don’t know as many people as you do. *Я не знаю столько людей, сколько ты.*
+
+How much did it cost? Fifty pounds? – No, not as much as that. *Сколько это будет стоить? Пятьдесят фунтов? – Нет, не настолько.*
+
+It’s not warm, but it isn’t so cold as yesterday. *Не тепло, но и не так холодно, как вчера.*
+
+I spent less money than you. *Я потратил меньше денег, чем ты.*
+
+The city center was less crowded than usual. *В центре города было меньше людей, чем обычно.*
+
+I play tennis less than I used to. *Я играю в теннис меньше, чем раньше.*
+____________________
+
+I’m sorry I’m late. I got here as fast as I could. *Извините, я опоздал. Я добрался сюда так быстро, как только мог.*
+
+There’s plenty of food. You can have as much as you want. *Еды много. Вы можете съесть столько, сколько хотите.*
+
+Let’s walk. It’s just as quick as taking the bus. *Давай прогуляемся. Это так же быстро, как на автобусе.*
+
+Can you send me the information as soon as possible, please? *Не могли бы вы прислать мне информацию как можно скорее, пожалуйста?*
+
+Petrol is twice as expensive as it was a few years ago. *Бензин в два раза дороже, чем несколько лет назад.*
+
+Their house is about three times as big as ours. *Их дом примерно в три раза больше нашего.*
+_____________
+Laura’s salary is the same as mine. Or Laura gets the same salary as me. *Зарплата Лауры такая же, как у меня. Или Лаура получает ту же зарплату, что и я.*
+
+David is the same age as James. *Дэвид ровесник Джеймса.*
+
+Sarah hasn’t changed. She still looks the same as she did ten years ago. *Сара не изменилась. Она до сих пор выглядит так же, как и десять лет назад.*
+
+Doing things is not the same as getting things done. *Делать что-то не то же самое, что cделать что-то.*
+
+You’re taller than me. Or You’re taller than I am. *Ты выше меня.*
+
+He’s not as clever as her. Or He’s not as clever as she is. *Он не такой умный, как она.*
+
+They have more money than us. Or They have more money than we have. *У них больше денег, чем у нас.*
+
+I can’t run as fast as him. Or I can’t run as fast as he can. *Я не могу бегать так быстро, как он.*
+
+## Unit 108 Превосходная степень прилагательных в английском - Superlative Adjectives
+
+What is the longest river in the world?
+
+What was the most enjoyable holiday you’ve ever had?
+1|2|3
+---|---|---
+Long - longest | Most famous | Good – best
+Hot - hottest | Most boring | Bad – worst
+Easy - easiest | Most difficult | Far – furthest/farthest *самый дальний*
+Hard – hardest | Most expensive | -
+
+Yesterday was the hottest day of the year. *Вчера был самый жаркий день в году.*
+
+The movie was really boring. It’s the most boring movie I’ve ever seen. *Фильм был действительно скучным. Это самый скучный фильм, который я когда-либо видел.*
+
+She is a really nice person – one of the nicest people I know. *Она очень хороший человек — один из самых хороших людей, которых я знаю.*
+
+Why does he always come to see me at the worst possible time? *Почему он всегда приходит ко мне в самый неподходящий момент?*
+
+This hotel is the cheapest in town. It’s cheaper than all the others in town. *Этот отель самый дешевый в городе. Это дешевле, чем все остальные в городе.*
+
+He’s the most patient person I’ve ever met. *Он самый терпеливый человек, которого я когда-либо встречал.*
+
+He’s much more patient than I am. *Он намного терпеливее меня.*
+_____________
+That church is the oldest building in the town. *Эта церковь является самым старым зданием в городе.*
+
+My eldest son is 13 years old. *Моему старшему сыну 13 лет.*
+
+Are you the eldest in your family? *Вы старший в семье?*
+____________
+What’s the longest river in the world? *Какая самая длинная река в мире?*
+
+We had a nice room. It was one of the best in the hotel. *У нас был хороший номер. Он был одним из лучших в отеле.*
+
+Who is the youngest student in the class? *Кто самый младший ученик в классе?*
+
+Yesterday was the hottest day of the year. *Вчера был самый жаркий день в году.*
+
+What was the happiest day of your life? *Какой был самый счастливый день в твоей жизни?*
+
+What’s the most important decision you’ve ever had to make? *Какое самое важное решение вам приходилось принимать?*
+
+That was the best holiday I’ve had for a long time. *Это был лучший отпуск, который у меня был за долгое время.*
+
+## Unit 109 Порядок слов - word order: дополнение и обстоятельство
+
+I __like my job__ very much. *Мне очень нравится моя работа.*
+
+Did you __see your friends__ yesterday? *Ты видел своих друзей вчера?*
+
+Helen never __drinks coffee.__ *Хелен никогда не пьет кофе.*
+________________
+
+Do you __eat meat__ every day? *Ты ешь мясо каждый день?*
+
+Everybody __enjoyed the party__ very much *Всем очень понравилась вечеринка*
+
+Our guide __spoke English__ fluently *Наш гид говорил по-английски свободно*
+
+I lost all my money and I also __lost my passport__ *Я потерял все свои деньги и свой паспорт*
+
+At the end of the street you’ll __see a supermarket__ on your left *В конце улицы ты увидишь супермаркет слева*
+_____________
+
+__Go home, live in a city, walk to work, take somebody home, meet a friend in the street.__
+*Идти домой, жить в городе, ходить на работу пешком, отвезти кого-нибудь домой, встретить друга на улице.*
+
+Ben walks __to work__ every morning
+
+Sam has been __in Canada__ since April
+
+We arrived __at the airport__ early
+
+*Бен ходит пешком на работу каждое утро. Сэм находится в Канаде с апреля. Мы прибыли в аэропорт рано.*
+______________
+I’m going __to Paris on Monday.__ *Я собираюсь в Париж в понедельник.*
+
+They have lived __in the same house for a long time.__ *Они давно живут в одном доме.*
+
+Don’t be late. Make sure you’re __here by 8 o’clock.__ *Не опаздывайте. Убедитесь, что ты был здесь к 8 часам.*
+
+Sarah gave me a lift __home after the party__. *Сара подвезла меня домой после вечеринки.*
+
+You really shouldn’t go __to bed so late__. *Тебе действительно не следует ложиться спать так поздно.*
+____________
+__On Monday__ I’m going to Paris. *В понедельник я еду в Париж.*
+
+__Every morning__ Ben walks to work. *Каждое утро Бен идет на работу.*
+
+## Unit 110 Порядок слов - word order: глагол и наречие
+
+Helen __always drives__ to work. *Хелен всегда ездит на работу.*
+
+We were feeling very tired and we __were also__ hungry. *Мы чувствовали себя очень усталыми, и мы также были голодны.*
+ 
+The concert __will probably be cancelled__. *Концерт, скорее всего, отменят.*
+
+I almost __fell__ as I was going down the stairs. *Я чуть не упал, когда спускался по лестнице.*
+_____________
+
+I cleaned the house and __also cooked__ the dinner. *Я убрался в доме, а также приготовил ужин.*
+
+Lucy __hardly ever watches__ television and __rarely reads__ newspapers. *Люси почти никогда не смотрит телевизор и редко читает газеты.*
+
+Shall I give you my address? – No, I __already have__ it. *Мне дать вам мой адрес? - Нет, он у меня уже есть.*
+
+Joe never phones me. I __always have__ to phone him. *Джо никогда не звонит мне. Мне всегда приходится звонить ему.*
+ 
+We were feeling very tired and we __were also__ hungry. *Мы чувствовали себя очень усталыми, и мы также были голодны.*
+
+Why are you always late? You __are never__ on time. *Почему ты всегда опаздываешь? Вы никогда не бываете вовремя.*
+
+The traffic __isn’t usually__ as bad as it was this morning. *Пробки обычно не такие плохие, как сегодня утром.*
+______________
+I __can never remember__ her name. *Я никак не могу вспомнить ее имя.*
+
+Clare __doesn’t often eat__ meat. *Клэр не часто ест мясо.*
+
+__Are__ you __definitely going__ away next week? *Ты точно уедешь на следующей неделе?*
+
+The concert __will probably be__ cancelled. *Концерт, скорее всего, отменят.*
+____________
+You’ve __always been__ very kind to me. *Ты всегда был очень добр ко мне.*
+
+Jack can’t cook. He __can’t even boil__ an egg. *Джек не умеет готовить. Он даже не может сварить яйцо.*
+
+__Do__ you __still work__ for the same company? *Вы все еще работаете в той же компании?*
+
+The house __was only built__ a year ago and it’s __already falling__ down. *Дом построили всего год назад, а он уже рушится.*
+
+I __probably won’t see__ you. Or I will __probably not__ see you. *Я, наверное, тебя не увижу.*
+______________
+
+We __all felt__ ill after the meal. *Нам всем стало плохо после еды.*
+
+My parents __are both__ teachers. *Мои родители оба учителя.*
+
+Sarah and Jane __have both applied__ for the job. *Сара и Джейн обе подали заявки на работу.*
+
+We __are all going__ out tonight. *Мы все выходим сегодня вечером.*
+_____________
+Tom says he isn’t clever, but I think he __is__. *Том говорит, что он не умен, но я так думаю.*
+
+He always says he won’t be late, but he __always is__. *Он всегда говорит, что не опоздает, но он всегда опаздывает.*
+
+I’ve never done it and I __never will__. *Я никогда этого не делал и никогда не сделаю.*
 
 
 
