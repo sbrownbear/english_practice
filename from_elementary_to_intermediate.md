@@ -148,7 +148,7 @@ As long as George __breathes__, he __will love__ Julia forever. *Пока Джо
 
 The bank __won’t give__ money to Catherine unless she __finds__ a decent job. *Банк не даст денег Кэтрин, если она не найдет достойную работу.*
 
-Don’t touch the desert until you __finish__ your dinner. *Не прикасайтесь к пустыне, пока не закончите обедать.*
+Don’t touch the dessert until you __finish__ your dinner. *Не прикасайтесь к десерту, пока не закончите обедать.*
 
 When you __leave__ metal under the rain, it becomes __rusty__. *Когда оставляешь металл под дождем, он ржавеет.*
 
