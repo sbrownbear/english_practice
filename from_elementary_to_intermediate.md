@@ -194,7 +194,7 @@ __As long as__ you are more careful on the road, you won’t get into an acciden
 
 __Unless__ we catch a taxi, we will miss our flight to San Francisco. *Если мы не поймаем такси, мы опоздаем на рейс в Сан-Франциско.*
 
-He will end up in prison __as soon as__ he robs the back. *Он попадет в тюрьму, как только ограбит спину.*
+He will end up in prison __as soon as__ he robs the bank. *Он попадет в тюрьму, как только ограбит банк.*
 
 Kate is extremely disappointed with him. She will only come __as soon as__ he apologizes to her. *Кейт крайне разочарована им. Она придет только тогда, когда он извинится перед ней.*
 
