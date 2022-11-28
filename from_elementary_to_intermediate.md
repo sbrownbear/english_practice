@@ -148,7 +148,7 @@ As long as George __breathes__, he __will love__ Julia forever. *Пока Джо
 
 The bank __won’t give__ money to Catherine unless she __finds__ a decent job. *Банк не даст денег Кэтрин, если она не найдет достойную работу.*
 
-Don’t touch the desert until you __finish__ your dinner. *Не прикасайтесь к пустыне, пока не закончите обедать.*
+Don’t touch the dessert until you __finish__ your dinner. *Не прикасайтесь к десерту, пока не закончите обедать.*
 
 When you __leave__ metal under the rain, it becomes __rusty__. *Когда оставляешь металл под дождем, он ржавеет.*
 
@@ -194,7 +194,7 @@ __As long as__ you are more careful on the road, you won’t get into an acciden
 
 __Unless__ we catch a taxi, we will miss our flight to San Francisco. *Если мы не поймаем такси, мы опоздаем на рейс в Сан-Франциско.*
 
-He will end up in prison __as soon as__ he robs the back. *Он попадет в тюрьму, как только ограбит спину.*
+He will end up in prison __as soon as__ he robs the bank. *Он попадет в тюрьму, как только ограбит банк.*
 
 Kate is extremely disappointed with him. She will only come __as soon as__ he apologizes to her. *Кейт крайне разочарована им. Она придет только тогда, когда он извинится перед ней.*
 
