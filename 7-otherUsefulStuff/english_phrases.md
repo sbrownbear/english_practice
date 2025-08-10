@@ -1,0 +1,66 @@
+## Английские словосочетания
+- __Manual labour__, __Scarcity__, __You flatter me__
+    - *Ручной труд, дефицит, ты мне льстишь*
+- __You've got me really curious about Australia__
+    - *Вы меня очень заинтересовали Австралией*
+- __That's the whole point, No outsiders__
+    - *В этом весь смысл, никаких посторонних*
+- __This is an emergency, It works wonders__
+    - *Это срочно, это творит чудеса*
+- __That sounds pretty nasty, That's the whole idea of surfing__
+    - *Это звучит довольно противно, в этом вся идея серфинга*
+- __It's the way I walk, I can't stand blood__
+    - *Я так хожу, я терпеть не могу кровь*
+- __You guys would really hit it off, We got a lot in common__
+    - *Вы, ребята, действительно нашли бы общий язык, у нас много общего*
+- __Why you're out here looking for Cody?__
+    - *Почему ты здесь ищешь Коди?*
+- __We've known each other way back since yesterday__
+    - *Мы знаем друг друга еще со вчерашнего дня*
+- __It's not a conspiracy, I got carried away__
+    - *Это не заговор, я увлекся*
+- __You're in my face, You don't seem to understand__
+    - *Ты у меня перед носом, ты, кажется, не понимаешь*
+
+---
+- __Guess we better take a look, Stuff like that__
+    - *Думаю, нам лучше посмотреть, вроде того*
+- __Say properly, Keep it up, Shake a leg, I speak my mind__
+    - *Скажи правильно, так держать, поторопись, я говорю то, что думаю*
+- __Rise and shine__
+    - *Проснись и пой*
+- __Wakey-wakey, boys, rise and shine__
+    - *Пора вставать, мальчики, солнышко встало и светит*
+- __Wakey-wakey, eggs and bakey__
+    - *Просыпайся, завтрак готов*
+- You should never fucking surrender! Никогда, черт возьми, не следует сдаваться!
+- It’s my jam! – Это мой конек. That’s my jam. Я от него тащусь.
+- It’s not my jam! – Это не моя фишка, не моя тема (Я этим не занимаюсь, это не делаю). 
+- Don’t push me – не толкай меня, не дави на меня, не провоцируй/вынуждай меня.
+- I came up with it – я сам это придумал
+- I figured – я пологал, я так и думал, я так и понял
+- __Dismissed, I can count on you, Don't let me down__
+    - *Разошлись (разойдись, уволен), я могу рассчитывать на вас, не подведи меня*
+- __I got your back, No offense, Wuss, Slow but surely, Maybe another time__
+    - *Я тебя прикрою, без обид, слабак, медленно но верно, может в другой раз*
+- __Not a big deal, Over and over, Just in case__
+    - *Ничего страшного, снова и снова, на всякий случай*
+
+---
+- Take advantage of that – воспользуйтесь этим
+- I’m infinitely curious – мне бесконечно любопытно
+- I was struggling on fear – я боролся со страхом
+- It’s pricey – это дорого
+- Don’t mention it – не за что
+- To some extent – в какой-то степени
+- No doubt – без сомнений
+- Get lost – проваливай, убирайся
+- High five – дай пять
+- Take your time – не торопись
+- Fuck off – отвали
+- Fuck up – облажаться
+- Fuck around – валять дурака
+- Fuck over – обмануть/сильно подвести
+- Fuck it – к черту (да ну его)
+- I rest my case – я все сказал (я остаюсь при своем мнении)
+- Highlights of the day - основные моменты (самые яркие события) дня
